@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
