@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## What do you call a boy who stopped digging holes? Douglas.
