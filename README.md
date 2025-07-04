@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Writing with a broken pencil is pointless.
