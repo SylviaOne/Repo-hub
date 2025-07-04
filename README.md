@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## How come the stadium got hot after the game? Because all of the fans left.
