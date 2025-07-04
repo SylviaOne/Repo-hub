@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
