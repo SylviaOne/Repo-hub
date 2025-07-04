@@ -1,1 +1,1 @@
-## To be Frank, I'd have to change my name.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
