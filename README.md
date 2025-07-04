@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## A cannibal is someone who is fed up with people.
