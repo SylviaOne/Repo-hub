@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
