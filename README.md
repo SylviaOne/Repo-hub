@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
