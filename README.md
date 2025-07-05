@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## What do you call two guys hanging out by your window? Kurt & Rod.
