@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
