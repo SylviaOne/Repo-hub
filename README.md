@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
