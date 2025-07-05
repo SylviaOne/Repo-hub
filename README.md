@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I was going to learn how to juggle, but I didn't have the balls.
