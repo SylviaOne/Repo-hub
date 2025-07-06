@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
