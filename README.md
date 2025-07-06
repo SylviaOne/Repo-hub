@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
