@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## What's black and white and read all over? The newspaper.
