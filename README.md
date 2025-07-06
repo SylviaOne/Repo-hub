@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
