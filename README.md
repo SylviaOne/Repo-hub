@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
