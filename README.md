@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
