@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## My boss told me to have a good day... so I went home.
