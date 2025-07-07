@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Past, present, and future walked into a bar.... It was tense.
