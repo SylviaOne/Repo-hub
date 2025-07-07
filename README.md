@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
