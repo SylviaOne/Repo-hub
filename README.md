@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
