@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## How come the stadium got hot after the game? Because all of the fans left.
