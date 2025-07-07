@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Whoever invented the knock-knock joke should get a no bell prize.
