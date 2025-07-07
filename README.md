@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
