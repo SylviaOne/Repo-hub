@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
