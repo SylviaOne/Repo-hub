@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
