@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
