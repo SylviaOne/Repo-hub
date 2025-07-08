@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## I decided to sell my Hoover… well it was just collecting dust.
