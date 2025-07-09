@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
