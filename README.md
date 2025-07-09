@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## How are false teeth like stars? They come out at night!
