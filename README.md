@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## Ever wondered why bees hum? It's because they don't know the words.
