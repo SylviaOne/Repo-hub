@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
