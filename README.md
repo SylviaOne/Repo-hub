@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## I accidentally took my cats meds last night. Don’t ask meow.
