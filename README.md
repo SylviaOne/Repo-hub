@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
