@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## My boss told me to have a good day... so I went home.
