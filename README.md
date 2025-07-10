@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
