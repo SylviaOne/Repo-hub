@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Why was it called the dark ages? Because of all the knights. 
