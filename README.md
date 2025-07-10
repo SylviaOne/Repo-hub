@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
