@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Bad at golf? Join the club.
