@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
