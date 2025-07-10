@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
