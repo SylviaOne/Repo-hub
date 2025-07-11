@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
