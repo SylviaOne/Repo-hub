@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
