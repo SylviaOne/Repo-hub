@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
