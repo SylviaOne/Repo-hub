@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
