@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
