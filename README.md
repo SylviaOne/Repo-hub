@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
