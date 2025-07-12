@@ -1,1 +1,1 @@
-## "I'm sorry." "Hi sorry, I'm dad"
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
