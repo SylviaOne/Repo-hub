@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## What did one wall say to the other wall? I'll meet you at the corner!
