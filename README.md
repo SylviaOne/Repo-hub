@@ -1,1 +1,2 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
