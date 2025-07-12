@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
