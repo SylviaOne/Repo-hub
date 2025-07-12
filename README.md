@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
