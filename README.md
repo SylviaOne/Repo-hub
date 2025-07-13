@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
