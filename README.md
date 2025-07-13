@@ -1,3 +1,3 @@
-## Never Trust Someone With Graph Paper...
+## Why do pumpkins sit on people’s porches?
 ## 
-## They're always plotting something.
+## They have no hands to knock on the door.
