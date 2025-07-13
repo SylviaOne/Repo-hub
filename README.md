@@ -1,1 +1,3 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
