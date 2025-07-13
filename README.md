@@ -1,1 +1,1 @@
-## *Reversing the car* "Ah, this takes me back"
+## What is a vampire's favorite fruit? A blood orange.
