@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Why didn’t the skeleton cross the road? Because he had no guts.
