@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
