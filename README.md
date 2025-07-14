@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
