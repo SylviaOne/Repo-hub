@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
