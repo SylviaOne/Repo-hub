@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## How come the stadium got hot after the game? Because all of the fans left.
