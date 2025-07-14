@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
