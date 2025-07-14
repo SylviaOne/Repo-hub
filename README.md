@@ -1,1 +1,2 @@
-## What did the calculator say to the student? You can count on me.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
