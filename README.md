@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Geology rocks, but Geography is where it's at!
