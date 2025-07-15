@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Breaking news! Energizer Bunny arrested – charged with battery.
