@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why do pirates not know the alphabet? They always get stuck at "C".
