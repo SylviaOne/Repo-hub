@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
