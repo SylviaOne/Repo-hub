@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Never take advice from electrons. They are always negative.
