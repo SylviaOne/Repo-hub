@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## I considered building the patio by myself. But I didn't have the stones.
