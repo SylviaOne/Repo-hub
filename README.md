@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## How do you fix a broken pizza? With tomato paste.
