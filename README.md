@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
