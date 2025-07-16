@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
