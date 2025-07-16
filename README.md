@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
