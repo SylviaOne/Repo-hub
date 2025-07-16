@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
