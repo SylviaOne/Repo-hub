@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
