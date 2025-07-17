@@ -1,1 +1,2 @@
-## Why is it so windy inside an arena? All those fans.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
