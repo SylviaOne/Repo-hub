@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
