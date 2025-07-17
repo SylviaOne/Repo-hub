@@ -1,1 +1,1 @@
-## What is the tallest building in the world? The library – it’s got the most stories!
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
