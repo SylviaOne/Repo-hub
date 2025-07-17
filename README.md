@@ -1,3 +1,2 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
