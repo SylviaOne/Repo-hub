@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
