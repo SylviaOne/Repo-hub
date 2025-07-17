@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
