@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
