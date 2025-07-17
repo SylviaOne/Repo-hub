@@ -1,1 +1,3 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
