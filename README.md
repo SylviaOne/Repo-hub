@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Why did the tomato blush? Because it saw the salad dressing.
