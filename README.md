@@ -1,1 +1,2 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
