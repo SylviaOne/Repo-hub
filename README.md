@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
