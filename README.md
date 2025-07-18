@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
