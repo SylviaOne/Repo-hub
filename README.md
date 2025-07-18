@@ -1,1 +1,2 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
