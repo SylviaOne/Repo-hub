@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
