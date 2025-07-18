@@ -1,2 +1,3 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
