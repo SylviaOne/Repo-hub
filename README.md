@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
