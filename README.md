@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## What kind of magic do cows believe in? MOODOO.
