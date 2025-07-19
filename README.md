@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
