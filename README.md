@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
