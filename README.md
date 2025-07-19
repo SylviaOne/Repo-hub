@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
