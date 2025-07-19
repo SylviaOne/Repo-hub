@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
