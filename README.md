@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## I have kleptomania, but when it gets bad, I take something for it.
