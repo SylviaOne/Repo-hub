@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## There's not really any training for garbagemen. They just pick things up as they go.
