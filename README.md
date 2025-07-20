@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
