@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## I’m on a whiskey diet. I’ve lost three days already.
