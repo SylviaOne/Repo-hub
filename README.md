@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
