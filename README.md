@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## You know that cemetery up the road? People are dying to get in there.
