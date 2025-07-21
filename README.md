@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## What did the grape do when he got stepped on? He let out a little wine.
