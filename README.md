@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
