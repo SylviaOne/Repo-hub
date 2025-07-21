@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
