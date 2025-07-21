@@ -1,1 +1,2 @@
-## Never take advice from electrons. They are always negative.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
