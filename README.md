@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
