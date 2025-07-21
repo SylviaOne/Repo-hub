@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
