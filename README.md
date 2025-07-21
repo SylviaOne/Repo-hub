@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
