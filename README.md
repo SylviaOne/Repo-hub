@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## As I suspected, someone has been adding soil to my garden. The plot thickens.
