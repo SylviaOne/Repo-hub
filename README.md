@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
