@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## The rotation of earth really makes my day.
