@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Why did the tomato blush? Because it saw the salad dressing.
