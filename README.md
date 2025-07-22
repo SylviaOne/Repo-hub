@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
