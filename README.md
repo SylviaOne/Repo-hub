@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
