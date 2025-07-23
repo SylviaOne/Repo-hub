@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What do you call a dictionary on drugs? High definition.
