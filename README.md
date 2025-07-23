@@ -1,1 +1,2 @@
-## What do you give a sick lemon? Lemonaid.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
