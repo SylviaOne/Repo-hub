@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
