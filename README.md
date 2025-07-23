@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What kind of music do mummy's like? Rap
