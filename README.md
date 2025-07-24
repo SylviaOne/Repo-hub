@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
