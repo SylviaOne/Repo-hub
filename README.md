@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
