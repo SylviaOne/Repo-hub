@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
