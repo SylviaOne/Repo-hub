@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Coffee has a tough time at my house, every morning it gets mugged.
