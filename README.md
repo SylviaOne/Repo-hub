@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
