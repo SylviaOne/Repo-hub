@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Why is no one friends with Dracula? Because he's a pain in the neck.
