@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## Why didn’t the skeleton cross the road? Because he had no guts.
