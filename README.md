@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I’m on a whiskey diet. I’ve lost three days already.
