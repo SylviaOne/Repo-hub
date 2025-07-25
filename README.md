@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
