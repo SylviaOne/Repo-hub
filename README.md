@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## What do you get when you cross a snowman with a vampire? Frostbite.
