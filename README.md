@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
