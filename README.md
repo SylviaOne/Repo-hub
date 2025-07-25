@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
