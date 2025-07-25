@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
