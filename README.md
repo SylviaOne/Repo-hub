@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Where did you learn to make ice cream? Sunday school.
