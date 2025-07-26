@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## I’m only familiar with 25 letters in the English language. I don’t know why.
