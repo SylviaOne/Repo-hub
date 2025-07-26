@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What animal is always at a game of cricket? A bat.
