@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
