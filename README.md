@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
