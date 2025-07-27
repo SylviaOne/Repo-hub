@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
