@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
