@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## I considered building the patio by myself. But I didn't have the stones.
