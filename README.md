@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What was a more important invention than the first telephone? The second one.
