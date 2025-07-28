@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## How come the stadium got hot after the game? Because all of the fans left.
