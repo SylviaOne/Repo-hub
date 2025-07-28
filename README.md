@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Writing with a broken pencil is pointless.
