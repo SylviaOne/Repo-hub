@@ -1,1 +1,2 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
