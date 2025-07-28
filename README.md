@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
