@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
