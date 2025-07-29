@@ -1,1 +1,2 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
