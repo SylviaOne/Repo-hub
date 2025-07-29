@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
