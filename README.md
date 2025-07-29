@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## How come the stadium got hot after the game? Because all of the fans left.
