@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
