@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## What don't watermelons get married? Because they cantaloupe.
