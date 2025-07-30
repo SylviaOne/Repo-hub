@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
