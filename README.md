@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
