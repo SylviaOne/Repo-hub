@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
