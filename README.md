@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
