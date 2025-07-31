@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What do you call a dad that has fallen through the ice? A Popsicle.
