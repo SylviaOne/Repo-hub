@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
