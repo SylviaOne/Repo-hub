@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## Why are fish easy to weigh? Because they have their own scales.
