@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
