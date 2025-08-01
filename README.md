@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
