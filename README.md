@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
