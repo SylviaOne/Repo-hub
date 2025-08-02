@@ -1,1 +1,3 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
