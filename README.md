@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Me and my mates are in a band called Duvet. We're a cover band.
