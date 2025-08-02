@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
