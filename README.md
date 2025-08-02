@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## How come the stadium got hot after the game? Because all of the fans left.
