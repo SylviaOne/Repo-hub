@@ -1,1 +1,3 @@
-## What's blue and not very heavy?  Light blue.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
