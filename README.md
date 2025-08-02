@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
