@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
