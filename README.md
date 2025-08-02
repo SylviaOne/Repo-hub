@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What's blue and not very heavy?  Light blue.
