@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## When does a joke become a dad joke? When it becomes apparent.
