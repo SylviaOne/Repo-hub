@@ -1,1 +1,3 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
