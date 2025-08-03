@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
