@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
