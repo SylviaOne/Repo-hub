@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
