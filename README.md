@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
