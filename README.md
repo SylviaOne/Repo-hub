@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
