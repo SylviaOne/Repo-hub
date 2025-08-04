@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
