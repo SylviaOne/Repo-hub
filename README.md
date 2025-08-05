@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
