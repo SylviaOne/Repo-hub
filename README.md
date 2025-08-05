@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## What do computers and air conditioners have in common? They both become useless when you open windows.
