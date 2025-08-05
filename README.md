@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
