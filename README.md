@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
