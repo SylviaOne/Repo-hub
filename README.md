@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
