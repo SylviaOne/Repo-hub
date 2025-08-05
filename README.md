@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## Remember, the best angle to approach a problem from is the "try" angle.
