@@ -1,1 +1,2 @@
-## When is a door not a door? When it's ajar.
+## What is the best way to carve?
+## Whittle by whittle.
