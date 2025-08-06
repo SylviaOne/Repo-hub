@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I used to work for an origami company but they folded.
