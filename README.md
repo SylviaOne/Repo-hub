@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## What did the ocean say to the shore? Nothing, it just waved.
