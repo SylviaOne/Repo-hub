@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
