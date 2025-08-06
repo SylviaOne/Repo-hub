@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
