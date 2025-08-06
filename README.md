@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## What did the ocean say to the beach? Thanks for all the sediment.
