@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
