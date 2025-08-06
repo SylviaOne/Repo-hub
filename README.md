@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
