@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
