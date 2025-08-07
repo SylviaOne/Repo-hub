@@ -1,1 +1,3 @@
-## How much does a hipster weigh? An instagram.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
