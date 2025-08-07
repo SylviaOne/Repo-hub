@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
