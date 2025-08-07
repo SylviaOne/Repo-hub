@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## What do you call a dictionary on drugs? High definition.
