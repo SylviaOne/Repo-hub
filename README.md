@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
