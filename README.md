@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
