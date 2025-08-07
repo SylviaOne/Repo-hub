@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
