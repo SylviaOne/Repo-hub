@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
