@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
