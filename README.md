@@ -1,1 +1,3 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
