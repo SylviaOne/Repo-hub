@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Two guys walked into a bar, the third one ducked.
