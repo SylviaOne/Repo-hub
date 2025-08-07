@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
