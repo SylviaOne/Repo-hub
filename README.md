@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## What do you call a sheep with no legs? A cloud.
