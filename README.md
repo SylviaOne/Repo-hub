@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
