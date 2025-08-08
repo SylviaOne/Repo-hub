@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## I got fired from the transmission factor, turns out I didn't put on enough shifts...
