@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
