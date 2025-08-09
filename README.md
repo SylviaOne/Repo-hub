@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## How do you teach a kid to climb stairs? There is a step by step guide.
