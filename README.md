@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
