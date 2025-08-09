@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What do you get hanging from Apple trees? Sore arms.
