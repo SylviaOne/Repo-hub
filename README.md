@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Why are fish so smart? Because they live in schools!
