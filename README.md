@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## I used to hate facial hair, but then it grew on me.
