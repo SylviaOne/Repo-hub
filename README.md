@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## What did the digital clock say to the grandfather clock? Look, no hands!
