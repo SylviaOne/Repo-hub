@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
