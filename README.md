@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What’s E.T. short for? He’s only got little legs.
