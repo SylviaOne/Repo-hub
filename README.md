@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
