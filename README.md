@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## What did the sea say to the sand? "We have to stop meeting like this."
