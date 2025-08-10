@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
