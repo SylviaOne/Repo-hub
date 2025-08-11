@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Never take advice from electrons. They are always negative.
