@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## What do you call a fly without wings? A walk.
