@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## What do you call a criminal going down the stairs? Condescending
