@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Have you heard about corduroy pillows?  They're making headlines!
