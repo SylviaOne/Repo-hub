@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
