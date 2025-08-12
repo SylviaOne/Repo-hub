@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## You know that cemetery up the road? People are dying to get in there.
