@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
