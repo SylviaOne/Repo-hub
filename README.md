@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Past, present, and future walked into a bar.... It was tense.
