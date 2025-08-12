@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
