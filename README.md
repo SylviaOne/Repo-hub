@@ -1,1 +1,3 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
