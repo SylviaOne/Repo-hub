@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
