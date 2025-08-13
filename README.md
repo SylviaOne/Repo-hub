@@ -1,1 +1,1 @@
-## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
