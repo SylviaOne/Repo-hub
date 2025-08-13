@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I used to work in a shoe recycling shop. It was sole destroying.
