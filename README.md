@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## How do you steal a coat? You jacket.
