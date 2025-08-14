@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## Whiteboards ... are remarkable.
