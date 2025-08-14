@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## I'll tell you what often gets over looked... garden fences.
