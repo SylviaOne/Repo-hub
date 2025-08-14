@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I used to hate facial hair, but then it grew on me.
