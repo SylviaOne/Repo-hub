@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
