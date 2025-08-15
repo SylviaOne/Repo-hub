@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Why did the melons plan a big wedding? Because they cantaloupe!
