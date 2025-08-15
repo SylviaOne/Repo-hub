@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why can't eggs have love? They will break up too soon.
