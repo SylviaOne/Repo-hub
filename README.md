@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why did the chicken get a penalty? For fowl play.
