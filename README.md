@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
