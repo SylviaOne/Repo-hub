@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Why do pirates not know the alphabet? They always get stuck at "C".
