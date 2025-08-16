@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## Why did the tree go to the dentist? It needed a root canal.
