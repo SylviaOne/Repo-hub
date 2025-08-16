@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
