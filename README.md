@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
