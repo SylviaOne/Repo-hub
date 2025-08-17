@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
