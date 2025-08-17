@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
