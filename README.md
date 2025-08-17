@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
