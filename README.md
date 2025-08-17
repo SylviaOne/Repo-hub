@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## What biscuit does a short person like? Shortbread. 
