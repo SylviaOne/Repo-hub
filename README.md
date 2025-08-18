@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
