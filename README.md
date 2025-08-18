@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
