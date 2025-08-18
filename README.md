@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## How come the stadium got hot after the game? Because all of the fans left.
