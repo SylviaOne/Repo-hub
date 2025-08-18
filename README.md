@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Don't tell secrets in corn fields. Too many ears around.
