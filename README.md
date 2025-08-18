@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What kind of tree fits in your hand? A palm tree!
