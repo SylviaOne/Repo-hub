@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
