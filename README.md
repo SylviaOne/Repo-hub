@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## A cannibal is someone who is fed up with people.
