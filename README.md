@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why did the tree go to the dentist? It needed a root canal.
