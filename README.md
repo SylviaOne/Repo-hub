@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
