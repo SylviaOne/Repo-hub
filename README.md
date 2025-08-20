@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
