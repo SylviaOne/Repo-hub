@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## What’s E.T. short for? He’s only got little legs.
