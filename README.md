@@ -1,1 +1,2 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
