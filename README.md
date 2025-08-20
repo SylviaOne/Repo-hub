@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Why do choirs keep buckets handy? So they can carry their tune
