@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## How do you make a hankie dance? Put a little boogie in it.
