@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## This furniture store keeps emailing me, all I wanted was one night stand!
