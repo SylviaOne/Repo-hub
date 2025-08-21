@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
