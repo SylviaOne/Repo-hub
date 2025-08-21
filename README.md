@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
