@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## How many apples grow on a tree? All of them!
