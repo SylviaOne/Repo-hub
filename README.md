@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
