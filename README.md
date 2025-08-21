@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
