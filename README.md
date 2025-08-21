@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
