@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
