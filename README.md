@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why do bears have hairy coats? Fur protection.
