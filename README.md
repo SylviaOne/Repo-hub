@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
