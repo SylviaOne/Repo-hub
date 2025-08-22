@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
