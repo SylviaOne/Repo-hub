@@ -1,1 +1,1 @@
-## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
