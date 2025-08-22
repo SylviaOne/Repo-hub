@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## What did the big flower say to the littler flower? Hi, bud!
