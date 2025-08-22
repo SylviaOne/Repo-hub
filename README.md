@@ -1,1 +1,1 @@
-## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
