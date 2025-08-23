@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
