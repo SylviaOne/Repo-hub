@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
