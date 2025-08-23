@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
