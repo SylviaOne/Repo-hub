@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I burned 2000 calories today, I left my food in the oven for too long.
