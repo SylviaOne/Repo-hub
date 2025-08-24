@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
