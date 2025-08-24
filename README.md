@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
