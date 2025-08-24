@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What time did the man go to the dentist? Tooth hurt-y.
