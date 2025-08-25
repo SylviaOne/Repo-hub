@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
