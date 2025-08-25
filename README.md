@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
