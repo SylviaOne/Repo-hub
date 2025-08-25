@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
