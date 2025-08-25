@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
