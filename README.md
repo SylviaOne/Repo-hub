@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## I'll tell you what often gets over looked... garden fences.
