@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
