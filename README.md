@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Why did the belt go to prison? He held up a pair of pants!
