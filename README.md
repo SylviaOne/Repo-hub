@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
