@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
