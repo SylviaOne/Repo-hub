@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## What do you do when your bunny gets wet? You get your hare dryer.
