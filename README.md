@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Sore throats are a pain in the neck!
