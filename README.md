@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## Why did the octopus beat the shark in a fight? Because it was well armed.
