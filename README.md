@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
