@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
