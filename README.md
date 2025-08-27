@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## I asked a frenchman if he played video games. He said "Wii"
