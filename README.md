@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## What musical instrument is found in the bathroom? A tuba toothpaste.
