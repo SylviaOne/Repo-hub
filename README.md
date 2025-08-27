@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Mountains aren't just funny, they are hill areas
