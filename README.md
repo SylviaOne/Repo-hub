@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
