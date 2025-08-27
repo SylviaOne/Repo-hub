@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Ever wondered why bees hum? It's because they don't know the words.
