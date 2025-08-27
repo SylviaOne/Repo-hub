@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
