@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Why did the tomato blush? Because it saw the salad dressing.
