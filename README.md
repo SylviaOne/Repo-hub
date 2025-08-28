@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Leather is great for sneaking around because it's made of hide.
