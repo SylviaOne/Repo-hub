@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why are skeletons so calm? Because nothing gets under their skin.
