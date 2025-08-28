@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
