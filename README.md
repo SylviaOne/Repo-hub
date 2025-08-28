@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
