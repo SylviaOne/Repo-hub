@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
