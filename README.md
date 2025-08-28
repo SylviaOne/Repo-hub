@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
