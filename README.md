@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
