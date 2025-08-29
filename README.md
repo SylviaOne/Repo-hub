@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## I used to hate facial hair, but then it grew on me.
