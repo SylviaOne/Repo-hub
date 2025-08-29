@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## I cut my finger chopping cheese, but I think that I may have grater problems.
