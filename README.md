@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
