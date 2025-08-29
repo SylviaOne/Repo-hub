@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I considered building the patio by myself. But I didn't have the stones.
