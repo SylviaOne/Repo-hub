@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
