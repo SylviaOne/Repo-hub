@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
