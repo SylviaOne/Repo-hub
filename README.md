@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
