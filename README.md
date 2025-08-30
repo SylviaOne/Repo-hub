@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## How do you make a water bed more bouncy. You use Spring Water
