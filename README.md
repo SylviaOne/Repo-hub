@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## What animal is always at a game of cricket? A bat.
