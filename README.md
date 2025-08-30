@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
