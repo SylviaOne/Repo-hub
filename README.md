@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## What did the ocean say to the beach? Thanks for all the sediment.
