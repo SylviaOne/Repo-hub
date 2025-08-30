@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## What is a vampire's favorite fruit? A blood orange.
