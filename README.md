@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
