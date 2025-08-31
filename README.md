@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## What has ears but cannot hear? A field of corn.
