@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
