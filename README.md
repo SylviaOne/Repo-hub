@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
