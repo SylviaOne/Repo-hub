@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
