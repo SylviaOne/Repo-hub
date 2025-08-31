@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
