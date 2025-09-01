@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
