@@ -1,1 +1,2 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
