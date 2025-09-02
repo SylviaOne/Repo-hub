@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
