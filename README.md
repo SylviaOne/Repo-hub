@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## "I'll call you later." Don't call me later, call me Dad.
