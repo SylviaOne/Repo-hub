@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## What do you call a group of disorganized cats? A cat-tastrophe.
