@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
