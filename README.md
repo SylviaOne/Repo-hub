@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What kind of dinosaur loves to sleep? A stega-snore-us.
