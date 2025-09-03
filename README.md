@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Two silk worms had a race. They ended up in a tie.
