@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
