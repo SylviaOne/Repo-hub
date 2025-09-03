@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
