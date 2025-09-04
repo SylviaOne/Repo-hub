@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why does Superman get invited to dinners? Because he is a Supperhero.
