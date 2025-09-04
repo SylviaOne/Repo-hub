@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
