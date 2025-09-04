@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
