@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What kind of pants do ghosts wear? Boo jeans.
