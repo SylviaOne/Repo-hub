@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Did you know that ghosts call their true love their ghoul-friend?
