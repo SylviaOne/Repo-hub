@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
