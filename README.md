@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I couldn't get a reservation at the library. They were completely booked.
