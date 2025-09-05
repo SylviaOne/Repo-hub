@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
