@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
