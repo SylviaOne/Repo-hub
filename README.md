@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Why did the knife dress up in a suit? Because it wanted to look sharp
