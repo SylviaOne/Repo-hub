@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## What did the piece of bread say to the knife? Butter me up.
