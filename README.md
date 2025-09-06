@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why was the strawberry sad? Its parents were in a jam.
