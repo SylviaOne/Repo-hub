@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
