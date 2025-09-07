@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## If I could name myself after any Egyptian god, I'd be Set.
