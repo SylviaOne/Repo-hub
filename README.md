@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why are fish so smart? Because they live in schools!
