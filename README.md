@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## How do you find Will Smith in the snow?  Look for fresh prints.
