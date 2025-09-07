@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
