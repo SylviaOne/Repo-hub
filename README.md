@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## How do you get two whales in a car? Start in England and drive West.
