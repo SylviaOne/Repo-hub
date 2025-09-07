@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
