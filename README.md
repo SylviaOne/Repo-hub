@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What did one wall say to the other wall? I'll meet you at the corner!
