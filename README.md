@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## I'd like to start a diet, but I've got too much on my plate right now.
