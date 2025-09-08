@@ -1,1 +1,2 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
