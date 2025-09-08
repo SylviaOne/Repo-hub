@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
