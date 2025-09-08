@@ -1,1 +1,1 @@
-## Camping is intense.
+## An apple a day keeps the bullies away. If you throw it hard enough.
