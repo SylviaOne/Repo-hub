@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## I used to work for a soft drink can crusher. It was soda pressing.
