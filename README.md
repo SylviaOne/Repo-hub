@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Why do ducks make great detectives? They always quack the case.
