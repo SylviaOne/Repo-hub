@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
