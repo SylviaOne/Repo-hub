@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## I have kleptomania, but when it gets bad, I take something for it.
