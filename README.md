@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
