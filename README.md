@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## This morning I was wondering where the sun was, but then it dawned on me.
