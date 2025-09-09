@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## What did the left eye say to the right eye? Between us, something smells!
