@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
