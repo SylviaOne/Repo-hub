@@ -1,1 +1,2 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
