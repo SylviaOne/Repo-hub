@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## Where do you learn to make banana splits? At sundae school.
