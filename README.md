@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
