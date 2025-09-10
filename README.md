@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## How does a dyslexic poet write? Inverse.
