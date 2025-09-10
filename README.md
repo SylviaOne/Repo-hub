@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## What's black and white and read all over? The newspaper.
