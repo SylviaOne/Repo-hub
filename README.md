@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
