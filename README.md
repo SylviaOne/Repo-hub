@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
