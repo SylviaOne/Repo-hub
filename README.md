@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
