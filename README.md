@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
