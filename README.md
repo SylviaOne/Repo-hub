@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## "What time is it?" I don't know... it keeps changing.
