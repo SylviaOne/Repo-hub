@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
