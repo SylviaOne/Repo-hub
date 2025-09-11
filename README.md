@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
