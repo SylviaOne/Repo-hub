@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
