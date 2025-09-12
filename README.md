@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
