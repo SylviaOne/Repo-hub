@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
