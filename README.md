@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
