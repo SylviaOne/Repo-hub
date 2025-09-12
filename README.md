@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## How does the moon cut his hair? Eclipse it.
