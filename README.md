@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
