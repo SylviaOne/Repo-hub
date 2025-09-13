@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
