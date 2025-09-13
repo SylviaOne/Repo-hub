@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Atheism is a non-prophet organisation.
