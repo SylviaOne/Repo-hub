@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
