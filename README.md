@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## What did one plate say to the other plate? Dinner is on me!
