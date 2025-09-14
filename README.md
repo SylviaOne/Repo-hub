@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Two silk worms had a race. They ended up in a tie.
