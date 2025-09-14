@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
