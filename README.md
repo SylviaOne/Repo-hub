@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
