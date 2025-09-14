@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Our wedding was so beautiful, even the cake was in tiers.
