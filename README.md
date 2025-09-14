@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
