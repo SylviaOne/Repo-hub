@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What do you call an alligator in a vest? An in-vest-igator!
