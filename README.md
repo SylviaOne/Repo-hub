@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
