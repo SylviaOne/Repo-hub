@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
