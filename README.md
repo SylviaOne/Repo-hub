@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
