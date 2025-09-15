@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
