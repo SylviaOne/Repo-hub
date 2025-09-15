@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
