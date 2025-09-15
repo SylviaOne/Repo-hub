@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
