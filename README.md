@@ -1,1 +1,1 @@
-## To be Frank, I'd have to change my name.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
