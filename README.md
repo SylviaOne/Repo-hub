@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## What has a bed that you can’t sleep in? A river.
