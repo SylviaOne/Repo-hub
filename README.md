@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## What's black and white and read all over? The newspaper.
