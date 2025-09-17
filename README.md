@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## I boiled a funny bone last night and had a laughing stock
