@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
