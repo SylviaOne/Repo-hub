@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
