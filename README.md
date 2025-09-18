@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Why do you never see elephants hiding in trees? Because they're so good at it.
