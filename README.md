@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## My boss told me to have a good day... so I went home.
