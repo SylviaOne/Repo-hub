@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## How do you get two whales in a car? Start in England and drive West.
