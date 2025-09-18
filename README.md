@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## How come the stadium got hot after the game? Because all of the fans left.
