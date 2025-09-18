@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## What did the grape do when he got stepped on? He let out a little wine.
