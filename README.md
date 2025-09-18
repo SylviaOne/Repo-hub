@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
