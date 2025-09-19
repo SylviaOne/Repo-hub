@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
