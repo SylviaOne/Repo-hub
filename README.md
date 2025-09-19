@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
