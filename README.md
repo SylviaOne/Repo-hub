@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## What did the digital clock say to the grandfather clock? Look, no hands!
