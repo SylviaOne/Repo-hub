@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## What did the digital clock say to the grandfather clock? Look, no hands!
