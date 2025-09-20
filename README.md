@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
