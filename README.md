@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## I made a belt out of watches once... It was a waist of time.
