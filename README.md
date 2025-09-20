@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
