@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
