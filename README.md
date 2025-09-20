@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## I just wrote a book on reverse psychology. Do not read it!
