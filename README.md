@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## What kind of pants do ghosts wear? Boo jeans.
