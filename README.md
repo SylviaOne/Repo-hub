@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
