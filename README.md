@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Dad, can you put my shoes on? I don't think they'll fit me.
