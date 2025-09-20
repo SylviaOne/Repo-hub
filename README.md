@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Why do mathematicians hate the U.S.? Because it's indivisible.
