@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
