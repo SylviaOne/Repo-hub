@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## My boss told me to attach two pieces of wood together... I totally nailed it!
