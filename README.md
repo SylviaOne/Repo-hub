@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## What does a pirate pay for his corn? A buccaneer!
