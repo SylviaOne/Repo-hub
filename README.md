@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Whoever invented the knock-knock joke should get a no bell prize.
