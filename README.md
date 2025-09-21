@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
