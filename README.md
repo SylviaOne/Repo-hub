@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Breaking news! Energizer Bunny arrested – charged with battery.
