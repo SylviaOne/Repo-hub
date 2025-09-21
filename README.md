@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
