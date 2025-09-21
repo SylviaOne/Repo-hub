@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
