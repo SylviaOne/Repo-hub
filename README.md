@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
