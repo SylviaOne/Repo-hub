@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## What did the pirate say on his 80th birthday? Aye Matey!
