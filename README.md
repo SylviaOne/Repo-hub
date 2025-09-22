@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
