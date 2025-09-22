@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
