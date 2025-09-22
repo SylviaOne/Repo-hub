@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
