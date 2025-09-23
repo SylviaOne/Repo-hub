@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## What do you call two guys hanging out by your window? Kurt & Rod.
