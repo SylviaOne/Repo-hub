@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Did you hear the joke about the wandering nun? She was a roman catholic.
