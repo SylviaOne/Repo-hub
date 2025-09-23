@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## There's not really any training for garbagemen. They just pick things up as they go.
