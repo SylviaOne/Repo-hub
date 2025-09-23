@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Why are basketball players messy eaters? Because they are always dribbling.
