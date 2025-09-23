@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
