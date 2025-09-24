@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Where do hamburgers go to dance? The meat-ball.
