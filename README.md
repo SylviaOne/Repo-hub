@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
