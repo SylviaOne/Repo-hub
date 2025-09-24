@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## What don't watermelons get married? Because they cantaloupe.
