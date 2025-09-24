@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
