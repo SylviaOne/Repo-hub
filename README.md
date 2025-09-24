@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Where did Captain Hook get his hook? From a second hand store.
