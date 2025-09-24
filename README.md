@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
