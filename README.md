@@ -1,1 +1,2 @@
-## I'm glad I know sign language, it's pretty handy.
+## Where do cats write notes?
+## Scratch Paper!
