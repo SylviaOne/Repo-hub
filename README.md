@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## What do you get when you cross a snowman with a vampire? Frostbite.
