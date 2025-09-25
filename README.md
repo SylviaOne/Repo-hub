@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
