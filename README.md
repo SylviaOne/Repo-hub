@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## The rotation of earth really makes my day.
