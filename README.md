@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
