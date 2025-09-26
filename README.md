@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
