@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
