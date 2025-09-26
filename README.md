@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
