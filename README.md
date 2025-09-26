@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## I burned 2000 calories today, I left my food in the oven for too long.
