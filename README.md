@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## How many South Americans does it take to change a lightbulb? A Brazilian
