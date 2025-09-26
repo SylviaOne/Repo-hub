@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
