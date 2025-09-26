@@ -1,1 +1,3 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
