@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
