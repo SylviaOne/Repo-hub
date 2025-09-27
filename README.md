@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## What does an angry pepper do? It gets jalapeño face.
