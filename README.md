@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What did the digital clock say to the grandfather clock? Look, no hands!
