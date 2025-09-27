@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
