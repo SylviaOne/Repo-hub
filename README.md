@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## What did the grape do when he got stepped on? He let out a little wine.
