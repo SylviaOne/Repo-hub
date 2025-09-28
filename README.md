@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
