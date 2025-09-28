@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## What don't watermelons get married? Because they cantaloupe.
