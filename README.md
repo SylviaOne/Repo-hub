@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
