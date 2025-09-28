@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## I'm glad I know sign language, it's pretty handy.
