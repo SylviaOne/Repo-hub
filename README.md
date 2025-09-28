@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
