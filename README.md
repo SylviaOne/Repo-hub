@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## I considered building the patio by myself. But I didn't have the stones.
