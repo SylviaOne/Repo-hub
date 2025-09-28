@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
