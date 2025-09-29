@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
