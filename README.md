@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
