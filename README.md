@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Why did the octopus beat the shark in a fight? Because it was well armed.
