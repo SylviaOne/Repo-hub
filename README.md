@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## How do you make a hankie dance? Put a little boogie in it.
