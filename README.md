@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## When do doctors get angry? When they run out of patients.
