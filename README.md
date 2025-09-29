@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## What do you call an alligator in a vest? An in-vest-igator!
