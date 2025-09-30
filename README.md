@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
