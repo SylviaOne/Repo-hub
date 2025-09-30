@@ -1,1 +1,2 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
