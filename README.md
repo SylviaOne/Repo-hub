@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
