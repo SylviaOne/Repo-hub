@@ -1,1 +1,1 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## I asked a frenchman if he played video games. He said "Wii"
