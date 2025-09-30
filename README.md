@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## I wouldn't buy anything with velcro. It's a total rip-off.
