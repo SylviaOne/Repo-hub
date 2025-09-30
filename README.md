@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## Did you know that ghosts call their true love their ghoul-friend?
