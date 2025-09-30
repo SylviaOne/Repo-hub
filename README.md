@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Why are skeletons so calm? Because nothing gets under their skin.
