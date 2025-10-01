@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
