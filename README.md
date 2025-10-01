@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
