@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
