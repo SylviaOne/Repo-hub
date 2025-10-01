@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
