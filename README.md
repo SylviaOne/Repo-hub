@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## What do you call a bear with no teeth? A gummy bear!
