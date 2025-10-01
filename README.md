@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
