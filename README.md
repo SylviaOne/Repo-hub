@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Why didn’t the skeleton cross the road? Because he had no guts.
