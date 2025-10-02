@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Animal Fact #25: Most bobcats are not named bob.
