@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
