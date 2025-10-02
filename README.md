@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why was the picture sent to prison? It was framed.
