@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
