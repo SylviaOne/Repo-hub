@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## I used to hate facial hair, but then it grew on me.
