@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
