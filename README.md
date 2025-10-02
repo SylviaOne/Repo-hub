@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
