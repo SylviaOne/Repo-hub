@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## What do you call a pig that knows karate? A pork chop!
