@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
