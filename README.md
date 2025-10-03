@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
