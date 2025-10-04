@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
