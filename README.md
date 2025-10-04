@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
