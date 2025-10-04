@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
