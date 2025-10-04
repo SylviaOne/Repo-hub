@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
