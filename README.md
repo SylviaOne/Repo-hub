@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
