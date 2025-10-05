@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
