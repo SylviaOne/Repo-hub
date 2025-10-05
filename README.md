@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why was it called the dark ages? Because of all the knights. 
