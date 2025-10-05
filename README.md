@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Why do ducks make great detectives? They always quack the case.
