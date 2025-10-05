@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Why don't eggs tell jokes? They'd crack each other up
