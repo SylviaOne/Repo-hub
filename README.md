@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
