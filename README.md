@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
