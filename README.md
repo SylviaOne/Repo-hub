@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
