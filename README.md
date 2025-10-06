@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
