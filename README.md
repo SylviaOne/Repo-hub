@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## I asked a frenchman if he played video games. He said "Wii"
