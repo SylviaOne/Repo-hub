@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## To the person who stole my anti-depressant pills: I hope you're happy now.
