@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## The first time I got a universal remote control I thought to myself, "This changes everything"
