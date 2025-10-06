@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
