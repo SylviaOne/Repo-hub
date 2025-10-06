@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
