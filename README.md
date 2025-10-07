@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
