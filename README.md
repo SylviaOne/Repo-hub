@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
