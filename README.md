@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## What did one plate say to the other plate? Dinner is on me!
