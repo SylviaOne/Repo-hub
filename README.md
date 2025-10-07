@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
