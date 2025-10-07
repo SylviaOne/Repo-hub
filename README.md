@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Did you hear the joke about the wandering nun? She was a roman catholic.
