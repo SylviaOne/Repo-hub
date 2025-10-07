@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Why did the kid throw the clock out the window? He wanted to see time fly!
