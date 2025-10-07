@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
