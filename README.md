@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
