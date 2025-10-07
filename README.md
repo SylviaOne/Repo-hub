@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
