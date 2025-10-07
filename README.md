@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
