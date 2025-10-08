@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
