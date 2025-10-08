@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Man, I really love my furniture... me and my recliner go way back.
