@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
