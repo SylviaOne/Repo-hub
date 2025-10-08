@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
