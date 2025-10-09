@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## When do doctors get angry? When they run out of patients.
