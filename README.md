@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What did the grape do when he got stepped on? He let out a little wine.
