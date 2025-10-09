@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
