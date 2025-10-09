@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## What do you call a beehive without the b's? An eehive.
