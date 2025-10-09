@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
