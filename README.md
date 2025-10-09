@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## What don't watermelons get married? Because they cantaloupe.
