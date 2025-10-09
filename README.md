@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## What's red and bad for your teeth? A Brick.
