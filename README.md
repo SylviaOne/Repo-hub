@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
