@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
