@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## I always wanted to look into why I procrastinate, but I keep putting it off. 
