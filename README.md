@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## What did the sea say to the sand? "We have to stop meeting like this."
