@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
