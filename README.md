@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Mountains aren't just funny, they are hill areas
