@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
