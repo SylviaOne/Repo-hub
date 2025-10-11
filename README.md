@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Why do cows wear bells? Because their horns don't work.
