@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
