@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## I got fired from a florist, apparently I took too many leaves.
