@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
