@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
