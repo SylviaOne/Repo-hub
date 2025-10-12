@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Ever wondered why bees hum? It's because they don't know the words.
