@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
