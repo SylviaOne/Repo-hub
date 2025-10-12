@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
