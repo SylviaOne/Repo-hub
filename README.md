@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## I was in an 80's band called the prevention. We were better than the cure.
