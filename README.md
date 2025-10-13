@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Did you know that ghosts call their true love their ghoul-friend?
