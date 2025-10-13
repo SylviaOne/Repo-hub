@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
