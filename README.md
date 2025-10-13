@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
