@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## No matter how kind you are, German children are kinder.
