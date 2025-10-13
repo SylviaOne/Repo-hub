@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
