@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
