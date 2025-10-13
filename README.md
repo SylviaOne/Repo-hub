@@ -1,1 +1,2 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
