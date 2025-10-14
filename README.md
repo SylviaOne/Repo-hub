@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## How do you find Will Smith in the snow?  Look for fresh prints.
