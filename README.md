@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
