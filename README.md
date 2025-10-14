@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
