@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## I used to work for a soft drink can crusher. It was soda pressing.
