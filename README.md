@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why was the robot angry? Because someone kept pressing his buttons!
