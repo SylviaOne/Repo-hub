@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## I broke my finger at work today, on the other hand I'm completely fine.
