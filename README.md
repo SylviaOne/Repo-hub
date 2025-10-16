@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## What do you call a droid that takes the long way around? R2 detour.
