@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
