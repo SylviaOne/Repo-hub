@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## I thought about going on an all-almond diet. But that's just nuts.
