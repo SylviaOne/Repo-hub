@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## How come a man driving a train got struck by lightning? He was a good conductor.
