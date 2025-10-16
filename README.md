@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
