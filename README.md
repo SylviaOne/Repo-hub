@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
