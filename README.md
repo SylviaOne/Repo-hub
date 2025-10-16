@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## What did the digital clock say to the grandfather clock? Look, no hands!
