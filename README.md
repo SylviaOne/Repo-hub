@@ -1,1 +1,2 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
