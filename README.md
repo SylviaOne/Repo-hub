@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why did the knife dress up in a suit? Because it wanted to look sharp
