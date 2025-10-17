@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## How do you find Will Smith in the snow?  Look for fresh prints.
