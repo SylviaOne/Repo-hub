@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
