@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## What do you get when you cross a rabbit with a water hose? Hare spray.
