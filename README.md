@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## You can't run through a camp site. You can only ran, because it's past tents.
