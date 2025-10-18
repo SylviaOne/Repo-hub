@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Slept like a log last night … woke up in the fireplace.
