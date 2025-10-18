@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
