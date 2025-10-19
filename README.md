@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
