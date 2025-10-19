@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## What do you call corn that joins the army? Kernel.
