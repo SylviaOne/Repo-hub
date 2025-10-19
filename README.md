@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
