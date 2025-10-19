@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
