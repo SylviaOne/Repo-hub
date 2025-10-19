@@ -1,1 +1,2 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## What is the best way to carve?
+## Whittle by whittle.
