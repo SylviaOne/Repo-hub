@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## How does a French skeleton say hello? Bone-jour.
