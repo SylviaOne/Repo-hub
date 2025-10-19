@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
