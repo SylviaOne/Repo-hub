@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Where do young cows eat lunch? In the calf-ateria.
