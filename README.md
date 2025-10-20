@@ -1,1 +1,1 @@
-## What is the tallest building in the world? The library – it’s got the most stories!
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
