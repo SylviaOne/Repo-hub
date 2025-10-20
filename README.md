@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
