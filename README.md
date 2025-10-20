@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
