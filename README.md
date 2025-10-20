@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
