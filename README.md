@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
