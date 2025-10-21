@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## What did the ocean say to the shore? Nothing, it just waved.
