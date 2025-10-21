@@ -1,3 +1,1 @@
-## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
-## 
-## So, I got a job at a travel agency.  Now, I know I'll be going places.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
