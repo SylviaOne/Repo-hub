@@ -1,1 +1,1 @@
-## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
