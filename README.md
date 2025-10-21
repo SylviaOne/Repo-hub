@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## I heard there was a new store called Moderation. They have everything there
