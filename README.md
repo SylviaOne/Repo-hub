@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
