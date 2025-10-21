@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
