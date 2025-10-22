@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
