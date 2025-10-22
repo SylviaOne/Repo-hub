@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
