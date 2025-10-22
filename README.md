@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
