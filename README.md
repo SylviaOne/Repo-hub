@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Mountains aren't just funny, they are hill areas
