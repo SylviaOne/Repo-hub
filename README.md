@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
