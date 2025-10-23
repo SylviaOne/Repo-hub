@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
