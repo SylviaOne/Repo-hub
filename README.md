@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
