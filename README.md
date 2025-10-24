@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## I used to be addicted to soap, but I'm clean now.
