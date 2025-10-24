@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## What did the fish say when it swam into a wall? Damn!
