@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Remember, the best angle to approach a problem from is the "try" angle.
