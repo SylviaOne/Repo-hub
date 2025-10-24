@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
