@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What did the piece of bread say to the knife? Butter me up.
