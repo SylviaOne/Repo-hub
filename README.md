@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
