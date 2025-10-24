@@ -1,1 +1,1 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
