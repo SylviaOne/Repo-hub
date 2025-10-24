@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
