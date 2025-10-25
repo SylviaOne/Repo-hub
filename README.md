@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
