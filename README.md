@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## What did the left eye say to the right eye? Between us, something smells!
