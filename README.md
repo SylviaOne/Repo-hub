@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
