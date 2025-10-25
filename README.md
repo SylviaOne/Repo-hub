@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
