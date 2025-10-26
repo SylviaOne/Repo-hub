@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
