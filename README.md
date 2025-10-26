@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
