@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## It takes guts to be an organ donor.
