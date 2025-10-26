@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## A termite walks into a bar and asks “Is the bar tender here?”
