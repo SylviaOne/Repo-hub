@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## Why are snake races so exciting? They're always neck and neck.
