@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## Why are graveyards so noisy? Because of all the coffin.
