@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## How many South Americans does it take to change a lightbulb? A Brazilian
