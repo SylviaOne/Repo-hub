@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
