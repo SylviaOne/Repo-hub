@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Don't tell secrets in corn fields. Too many ears around.
