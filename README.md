@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
