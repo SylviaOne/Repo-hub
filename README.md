@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## No matter how kind you are, German children are kinder.
