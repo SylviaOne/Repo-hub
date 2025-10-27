@@ -1,1 +1,2 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
