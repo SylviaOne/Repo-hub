@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I decided to sell my Hoover… well it was just collecting dust.
