@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
