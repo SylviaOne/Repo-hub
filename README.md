@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
