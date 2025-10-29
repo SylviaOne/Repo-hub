@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## What do you call two guys hanging out by your window? Kurt & Rod.
