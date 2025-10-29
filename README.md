@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
