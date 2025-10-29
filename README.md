@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
