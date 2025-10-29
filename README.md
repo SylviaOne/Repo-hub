@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Why are basketball players messy eaters? Because they are always dribbling.
