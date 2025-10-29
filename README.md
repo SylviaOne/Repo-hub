@@ -1,1 +1,3 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
