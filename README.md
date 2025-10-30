@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Where did you learn to make ice cream? Sunday school.
