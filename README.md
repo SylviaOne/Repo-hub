@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## What creature is smarter than a talking parrot? A spelling bee.
