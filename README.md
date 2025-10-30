@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## My dentist is the best, he even has a little plaque!
