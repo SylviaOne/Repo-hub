@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
