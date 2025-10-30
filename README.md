@@ -1,1 +1,2 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
