@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## How are false teeth like stars? They come out at night!
