@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## How do you find Will Smith in the snow?  Look for fresh prints.
