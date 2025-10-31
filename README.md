@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
