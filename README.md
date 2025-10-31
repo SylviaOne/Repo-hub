@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
