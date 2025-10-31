@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
