@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What do you get when you cross a pig and a pineapple? A porky pine
