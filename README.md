@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## Without geometry life is pointless.
