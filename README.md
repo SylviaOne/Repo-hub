@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What does an angry pepper do? It gets jalapeño face.
