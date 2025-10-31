@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
