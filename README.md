@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
