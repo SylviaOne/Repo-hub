@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
