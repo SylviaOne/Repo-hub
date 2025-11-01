@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## How much does a hipster weigh? An instagram.
