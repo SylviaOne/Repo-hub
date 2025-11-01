@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Want to hear a joke about construction? Nah, I'm still working on it.
