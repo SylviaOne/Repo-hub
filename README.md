@@ -1,1 +1,2 @@
-## What do you call a fat psychic? A four-chin teller.
+## What do you do when you see a space man?
+## Park your car, man.
