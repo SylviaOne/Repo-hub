@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
