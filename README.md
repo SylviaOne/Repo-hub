@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
