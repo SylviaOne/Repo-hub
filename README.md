@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
