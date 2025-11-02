@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Mountains aren't just funny, they are hill areas
