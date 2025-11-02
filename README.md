@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
