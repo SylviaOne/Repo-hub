@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why don't sharks eat clowns?  Because they taste funny.
