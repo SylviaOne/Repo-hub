@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## To the guy who invented zero... thanks for nothing.
