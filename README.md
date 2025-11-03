@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## What did the ocean say to the beach? Thanks for all the sediment.
