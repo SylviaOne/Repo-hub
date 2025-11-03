@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
