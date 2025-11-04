@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Remember, the best angle to approach a problem from is the "try" angle.
