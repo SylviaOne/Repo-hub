@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## What do you call a fish wearing a bowtie? Sofishticated.
