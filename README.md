@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
