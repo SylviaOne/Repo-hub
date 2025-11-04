@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## Writing with a broken pencil is pointless.
