@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
