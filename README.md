@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Me and my mates are in a band called Duvet. We're a cover band.
