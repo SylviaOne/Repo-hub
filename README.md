@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## I just wrote a book on reverse psychology. Do not read it!
