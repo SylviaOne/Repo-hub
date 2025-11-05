@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
