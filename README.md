@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## What did the digital clock say to the grandfather clock? Look, no hands!
