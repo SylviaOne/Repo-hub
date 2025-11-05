@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Don't tell secrets in corn fields. Too many ears around.
