@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why do you never see elephants hiding in trees? Because they're so good at it.
