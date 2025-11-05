@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
