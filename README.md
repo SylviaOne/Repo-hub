@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## People are shocked to discover I have a police record but I love their greatest hits!
