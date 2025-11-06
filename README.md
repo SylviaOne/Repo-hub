@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## I knew a guy who collected candy canes, they were all in mint condition
