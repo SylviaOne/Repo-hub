@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
