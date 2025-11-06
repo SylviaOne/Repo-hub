@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## The urge to sing the Lion King song is just a whim away.
