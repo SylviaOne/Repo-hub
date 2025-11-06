@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why did the belt go to prison? He held up a pair of pants!
