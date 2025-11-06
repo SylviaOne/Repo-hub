@@ -1,1 +1,2 @@
-## What did the calculator say to the student? You can count on me.
+## What is red and smells like blue paint?
+## Red paint!
