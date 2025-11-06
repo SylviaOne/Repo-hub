@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## What was a more important invention than the first telephone? The second one.
