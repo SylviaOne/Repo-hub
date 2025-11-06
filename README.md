@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
