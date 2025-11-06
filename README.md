@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
