@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## What is a vampire's favorite fruit? A blood orange.
