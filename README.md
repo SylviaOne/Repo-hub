@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## How do you find Will Smith in the snow?  Look for fresh prints.
