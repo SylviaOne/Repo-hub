@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## What's brown and sticky? A stick.
