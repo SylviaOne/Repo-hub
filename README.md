@@ -1,1 +1,2 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
