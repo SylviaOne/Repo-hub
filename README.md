@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## What do you call an elephant that doesn’t matter? An irrelephant.
