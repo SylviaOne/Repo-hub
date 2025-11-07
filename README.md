@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
