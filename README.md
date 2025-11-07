@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Why was the strawberry sad? Its parents were in a jam.
