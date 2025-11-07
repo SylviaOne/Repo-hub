@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
