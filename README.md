@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## What type of music do balloons hate? Pop music!
