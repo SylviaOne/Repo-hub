@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
