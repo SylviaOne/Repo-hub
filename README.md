@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
