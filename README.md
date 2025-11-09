@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Why did the barber win the race? He took a short cut.
