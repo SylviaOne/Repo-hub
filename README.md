@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
