@@ -1,1 +1,1 @@
-## Why does it take longer to get from 1st to 2nd base, than it does to get from 2nd to 3rd base? Because there’s a Shortstop in between!
+## What is the tallest building in the world? The library – it’s got the most stories!
