@@ -1,1 +1,3 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
