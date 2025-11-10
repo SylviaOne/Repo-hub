@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
