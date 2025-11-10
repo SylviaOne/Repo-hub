@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why do choirs keep buckets handy? So they can carry their tune
