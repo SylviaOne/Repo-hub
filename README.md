@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Bad at golf? Join the club.
