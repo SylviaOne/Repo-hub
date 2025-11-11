@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## My boss told me to have a good day... so I went home.
