@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
