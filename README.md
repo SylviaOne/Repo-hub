@@ -1,1 +1,3 @@
-## Why do ducks make great detectives? They always quack the case.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
