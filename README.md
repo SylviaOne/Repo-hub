@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Where do rabbits go after they get married? On a bunny-moon.
