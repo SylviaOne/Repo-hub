@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
