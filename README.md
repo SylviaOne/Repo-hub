@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why didn’t the skeleton cross the road? Because he had no guts.
