@@ -1,1 +1,2 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
