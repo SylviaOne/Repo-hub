@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## I just got fired from a florist, apparently I took too many leaves.
