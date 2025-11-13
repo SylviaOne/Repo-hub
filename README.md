@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
