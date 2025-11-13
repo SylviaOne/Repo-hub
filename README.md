@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
