@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## This morning I was wondering where the sun was, but then it dawned on me.
