@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
