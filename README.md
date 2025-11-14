@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## A termite walks into a bar and asks “Is the bar tender here?”
