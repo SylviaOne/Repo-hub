@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
