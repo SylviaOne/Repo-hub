@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## A Skeleton walked into a bar he said I need a beer and a mop
