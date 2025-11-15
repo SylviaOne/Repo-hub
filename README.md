@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
