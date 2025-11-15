@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
