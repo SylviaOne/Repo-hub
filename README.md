@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
