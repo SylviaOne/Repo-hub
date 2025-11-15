@@ -1,1 +1,2 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
