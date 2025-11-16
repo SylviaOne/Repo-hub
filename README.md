@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## When do doctors get angry? When they run out of patients.
