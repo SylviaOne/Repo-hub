@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
