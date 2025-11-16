@@ -1,1 +1,1 @@
-## What do you call a female snake. misssssssss 
+## Why are skeletons so calm? Because nothing gets under their skin.
