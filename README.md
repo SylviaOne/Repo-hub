@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## Why do crabs never give to charity? Because they’re shellfish.
