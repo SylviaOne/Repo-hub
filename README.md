@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## You can't trust a ladder. It will always let you down
