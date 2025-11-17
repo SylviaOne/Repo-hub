@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What's a ninja's favorite type of shoes? Sneakers!
