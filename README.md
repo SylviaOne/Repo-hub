@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
