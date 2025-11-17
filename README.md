@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why was the robot angry? Because someone kept pressing his buttons!
