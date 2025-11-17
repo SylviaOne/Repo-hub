@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
