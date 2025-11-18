@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## How do you find Will Smith in the snow?  Look for fresh prints.
