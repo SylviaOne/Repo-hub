@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
