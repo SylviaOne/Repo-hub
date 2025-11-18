@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
