@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Why did the barber win the race? He took a short cut.
