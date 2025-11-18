@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why is the ocean always blue? Because the shore never waves back.
