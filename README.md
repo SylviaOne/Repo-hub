@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
