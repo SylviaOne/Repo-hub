@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
