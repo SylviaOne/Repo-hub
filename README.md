@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why did the clown have neck pain? - Because he slept funny
