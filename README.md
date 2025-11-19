@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## I went to the doctor today and he told me I had type A blood but it was a type O.
