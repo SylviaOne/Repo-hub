@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
