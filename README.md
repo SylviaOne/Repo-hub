@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I used to work for a soft drink can crusher. It was soda pressing.
