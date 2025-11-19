@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
