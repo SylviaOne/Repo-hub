@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
