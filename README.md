@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
