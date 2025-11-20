@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
