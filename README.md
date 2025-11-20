@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## What did the digital clock say to the grandfather clock? Look, no hands!
