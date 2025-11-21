@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
