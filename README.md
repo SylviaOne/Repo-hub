@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## No matter how kind you are, German children are kinder.
