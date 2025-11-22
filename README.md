@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
