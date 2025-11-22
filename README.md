@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
