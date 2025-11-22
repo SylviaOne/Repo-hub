@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
