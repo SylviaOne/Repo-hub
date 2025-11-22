@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Our wedding was so beautiful, even the cake was in tiers.
