@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## I've got a joke about vegetables for you... but it's a bit corny.
