@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
