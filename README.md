@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Why do we tell actors to “break a leg?” Because every play has a cast.
