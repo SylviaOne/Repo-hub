@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
