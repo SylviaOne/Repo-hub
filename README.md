@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
