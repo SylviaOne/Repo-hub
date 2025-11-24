@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
