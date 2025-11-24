@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## I couldn't figure out how the seat belt worked. Then it just clicked.
