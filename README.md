@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why do crabs never give to charity? Because they’re shellfish.
