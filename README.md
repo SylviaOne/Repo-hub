@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
