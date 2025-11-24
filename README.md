@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Why did the melons plan a big wedding? Because they cantaloupe!
