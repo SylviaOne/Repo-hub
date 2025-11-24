@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
