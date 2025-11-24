@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
