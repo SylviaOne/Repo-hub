@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## What is a witch's favorite subject in school? Spelling!
