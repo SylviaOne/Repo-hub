@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## I just broke my guitar. It's okay, I won't fret
