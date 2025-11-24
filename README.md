@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
