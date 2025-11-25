@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
