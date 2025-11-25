@@ -1,3 +1,1 @@
-## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
-## 
-## So, I got a job at a travel agency.  Now, I know I'll be going places.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
