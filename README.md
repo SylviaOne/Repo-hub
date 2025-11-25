@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## Why is the ocean always blue? Because the shore never waves back.
