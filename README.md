@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Coffee has a tough time at my house, every morning it gets mugged.
