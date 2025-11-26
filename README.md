@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What did one wall say to the other wall? I'll meet you at the corner!
