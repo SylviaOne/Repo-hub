@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
