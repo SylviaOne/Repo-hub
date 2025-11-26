@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
