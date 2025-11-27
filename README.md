@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
