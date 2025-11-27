@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
