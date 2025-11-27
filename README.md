@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## How do you make a hankie dance? Put a little boogie in it.
