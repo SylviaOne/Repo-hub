@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Why do crabs never give to charity? Because they’re shellfish.
