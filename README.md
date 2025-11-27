@@ -1,1 +1,3 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+## 
+## So, I got a job at a travel agency.  Now, I know I'll be going places.
