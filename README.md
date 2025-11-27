@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I’m only familiar with 25 letters in the English language. I don’t know why.
