@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I'm glad I know sign language, it's pretty handy.
