@@ -1,1 +1,2 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## What is red and smells like blue paint?
+## Red paint!
