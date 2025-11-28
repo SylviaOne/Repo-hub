@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
