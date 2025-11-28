@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
