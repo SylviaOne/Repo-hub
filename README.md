@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why does Han Solo like gum? It's chewy!
