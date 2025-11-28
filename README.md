@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
