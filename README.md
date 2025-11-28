@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
