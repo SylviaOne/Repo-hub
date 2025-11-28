@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
