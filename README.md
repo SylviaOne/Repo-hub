@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
