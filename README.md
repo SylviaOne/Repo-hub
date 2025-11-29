@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why didn’t the skeleton cross the road? Because he had no guts.
