@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## A magician was driving down the street and then he turned into a driveway.
