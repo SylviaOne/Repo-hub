@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
