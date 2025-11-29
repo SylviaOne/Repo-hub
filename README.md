@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
