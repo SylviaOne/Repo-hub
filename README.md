@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## The shovel was a ground-breaking invention.
