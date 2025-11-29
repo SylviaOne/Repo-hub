@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## "I'll call you later." Don't call me later, call me Dad.
