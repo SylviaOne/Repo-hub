@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## What do you call two guys hanging out by your window? Kurt & Rod.
