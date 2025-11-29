@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## What’s E.T. short for? He’s only got little legs.
