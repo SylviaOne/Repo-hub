@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
