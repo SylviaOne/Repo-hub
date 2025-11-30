@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
