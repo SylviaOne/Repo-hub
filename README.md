@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
