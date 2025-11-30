@@ -1,1 +1,1 @@
-## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
