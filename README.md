@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
