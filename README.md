@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## How come the stadium got hot after the game? Because all of the fans left.
