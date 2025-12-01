@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
