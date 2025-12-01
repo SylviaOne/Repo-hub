@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## I thought about going on an all-almond diet. But that's just nuts.
