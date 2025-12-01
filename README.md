@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
