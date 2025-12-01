@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
