@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why did the tree go to the dentist? It needed a root canal.
