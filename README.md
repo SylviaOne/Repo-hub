@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Why did the melons plan a big wedding? Because they cantaloupe!
