@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
