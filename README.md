@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
