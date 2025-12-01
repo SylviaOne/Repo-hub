@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Remember, the best angle to approach a problem from is the "try" angle.
