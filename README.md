@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
