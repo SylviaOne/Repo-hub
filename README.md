@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Why do bees have sticky hair? Because they use honey combs!
