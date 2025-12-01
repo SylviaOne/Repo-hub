@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
