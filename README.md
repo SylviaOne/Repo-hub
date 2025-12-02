@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
