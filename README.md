@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
