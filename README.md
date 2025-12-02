@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
