@@ -1,1 +1,2 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
