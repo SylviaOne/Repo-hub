@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Why did the clown have neck pain? - Because he slept funny
