@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
