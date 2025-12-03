@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
