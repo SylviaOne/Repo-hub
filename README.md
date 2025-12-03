@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What did Yoda say when he saw himself in 4K? "HDMI"
