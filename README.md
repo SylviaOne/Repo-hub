@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
