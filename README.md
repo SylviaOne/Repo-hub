@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
