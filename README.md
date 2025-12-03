@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
