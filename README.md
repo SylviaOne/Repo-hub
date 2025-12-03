@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
