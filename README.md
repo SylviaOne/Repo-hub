@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Have you ever seen fruit preserves being made? It's jarring.
