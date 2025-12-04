@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
