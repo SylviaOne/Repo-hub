@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
