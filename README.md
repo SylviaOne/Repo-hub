@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## If I could name myself after any Egyptian god, I'd be Set.
