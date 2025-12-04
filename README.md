@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What did Yoda say when he saw himself in 4K? "HDMI"
