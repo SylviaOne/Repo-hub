@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
