@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
