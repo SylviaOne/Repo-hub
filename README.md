@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
