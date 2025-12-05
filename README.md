@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
