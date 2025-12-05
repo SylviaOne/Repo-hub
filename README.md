@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## How come the stadium got hot after the game? Because all of the fans left.
