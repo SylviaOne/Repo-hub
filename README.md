@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
