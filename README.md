@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Why do fish live in salt water? Because pepper makes them sneeze!
