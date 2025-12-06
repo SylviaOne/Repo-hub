@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Chances are if you' ve seen one shopping center, you've seen a mall.
