@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
