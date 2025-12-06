@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What did the ocean say to the shore? Nothing, it just waved.
