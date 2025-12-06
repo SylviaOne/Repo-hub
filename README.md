@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## I used to hate facial hair, but then it grew on me.
