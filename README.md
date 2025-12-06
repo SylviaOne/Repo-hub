@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
