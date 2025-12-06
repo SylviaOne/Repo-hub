@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
