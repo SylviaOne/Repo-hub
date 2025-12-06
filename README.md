@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
