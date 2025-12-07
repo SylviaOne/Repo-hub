@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## What do you call two guys hanging out by your window? Kurt & Rod.
