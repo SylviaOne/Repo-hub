@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
