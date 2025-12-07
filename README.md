@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## What did the fish say when it swam into a wall? Damn!
