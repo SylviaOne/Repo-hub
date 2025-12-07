@@ -1,1 +1,1 @@
-## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
