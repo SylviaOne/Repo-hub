@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
