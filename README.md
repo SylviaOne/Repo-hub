@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why can't a bicycle stand on its own? It's two-tired.
