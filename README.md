@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
