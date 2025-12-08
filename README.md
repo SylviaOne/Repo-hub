@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
