@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I've got a joke about vegetables for you... but it's a bit corny.
