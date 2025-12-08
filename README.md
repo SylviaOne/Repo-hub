@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
