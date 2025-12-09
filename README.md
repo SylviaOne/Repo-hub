@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
