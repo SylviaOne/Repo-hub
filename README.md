@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What do you call two guys hanging out by your window? Kurt & Rod.
