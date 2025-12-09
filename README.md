@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## How does a French skeleton say hello? Bone-jour.
