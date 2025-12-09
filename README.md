@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
