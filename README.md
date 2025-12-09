@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Did you hear about the runner who was criticized? He just took it in stride
