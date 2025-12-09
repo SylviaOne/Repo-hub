@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## This furniture store keeps emailing me, all I wanted was one night stand!
