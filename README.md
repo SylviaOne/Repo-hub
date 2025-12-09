@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
