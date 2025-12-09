@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
