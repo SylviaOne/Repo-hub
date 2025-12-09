@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## This morning I was wondering where the sun was, but then it dawned on me.
