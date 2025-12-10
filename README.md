@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## How come a man driving a train got struck by lightning? He was a good conductor.
