@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
