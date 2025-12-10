@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
