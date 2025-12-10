@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
