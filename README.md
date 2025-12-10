@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
