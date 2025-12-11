@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
