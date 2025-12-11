@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## How many apples grow on a tree? All of them!
