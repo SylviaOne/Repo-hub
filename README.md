@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
