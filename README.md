@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What has ears but cannot hear? A field of corn.
