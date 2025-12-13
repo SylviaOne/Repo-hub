@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
