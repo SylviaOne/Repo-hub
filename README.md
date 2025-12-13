@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
