@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
