@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Why was the strawberry sad? Its parents were in a jam.
