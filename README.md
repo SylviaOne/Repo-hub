@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## I decided to sell my Hoover… well it was just collecting dust.
