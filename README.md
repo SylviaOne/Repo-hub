@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
