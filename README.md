@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## A book just fell on my head. I only have my shelf to blame.
