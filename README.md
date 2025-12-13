@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## It doesn't matter how much you push the envelope. It will still be stationary.
