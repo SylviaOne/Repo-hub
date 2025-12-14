@@ -1,1 +1,2 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
