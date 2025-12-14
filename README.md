@@ -1,1 +1,2 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
