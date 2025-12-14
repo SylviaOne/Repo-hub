@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
