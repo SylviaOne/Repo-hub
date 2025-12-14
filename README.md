@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Man, I really love my furniture... me and my recliner go way back.
