@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## I've got a joke about vegetables for you... but it's a bit corny.
