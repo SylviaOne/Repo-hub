@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
