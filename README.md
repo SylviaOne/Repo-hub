@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
