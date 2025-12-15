@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
