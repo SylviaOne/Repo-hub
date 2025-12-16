@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What did the piece of bread say to the knife? Butter me up.
