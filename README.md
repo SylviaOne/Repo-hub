@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
