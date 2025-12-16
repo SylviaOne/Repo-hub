@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## I was in an 80's band called the prevention. We were better than the cure.
