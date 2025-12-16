@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
