@@ -1,1 +1,3 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
