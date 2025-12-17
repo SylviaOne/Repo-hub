@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
