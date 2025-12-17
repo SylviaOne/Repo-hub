@@ -1,1 +1,2 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## What is red and smells like blue paint?
+## Red paint!
