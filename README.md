@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
