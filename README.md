@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
