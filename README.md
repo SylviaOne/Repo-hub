@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
