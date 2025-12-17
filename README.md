@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## What did the ocean say to the shore? Nothing, it just waved.
