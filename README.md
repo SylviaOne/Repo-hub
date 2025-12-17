@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
