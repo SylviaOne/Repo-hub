@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## What did the shy pebble wish for? That she was a little boulder.
