@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
