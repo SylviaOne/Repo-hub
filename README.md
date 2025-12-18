@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
