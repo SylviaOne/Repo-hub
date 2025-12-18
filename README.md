@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## A termite walks into a bar and asks “Is the bar tender here?”
