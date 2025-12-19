@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
