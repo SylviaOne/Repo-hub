@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
