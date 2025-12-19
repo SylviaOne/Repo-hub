@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
