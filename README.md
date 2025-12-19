@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
