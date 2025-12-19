@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
