@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
