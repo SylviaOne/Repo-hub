@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
