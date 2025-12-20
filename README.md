@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
