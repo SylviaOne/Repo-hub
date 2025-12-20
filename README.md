@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
