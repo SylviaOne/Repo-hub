@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
