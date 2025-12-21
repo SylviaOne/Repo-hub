@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
