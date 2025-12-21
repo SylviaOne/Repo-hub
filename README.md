@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## What do bees do after they are married? They go on a honeymoon.
