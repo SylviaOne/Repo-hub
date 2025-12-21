@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
