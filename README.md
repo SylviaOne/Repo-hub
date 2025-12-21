@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## Why is the ocean always blue? Because the shore never waves back.
