@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
