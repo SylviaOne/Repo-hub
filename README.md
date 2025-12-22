@@ -1,1 +1,2 @@
-## Why was ten scared of seven? Because seven ate nine.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
