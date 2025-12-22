@@ -1,1 +1,1 @@
-## Where’s the bin? Dad: I haven’t been anywhere!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
