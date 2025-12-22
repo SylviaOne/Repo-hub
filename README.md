@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## The rotation of earth really makes my day.
