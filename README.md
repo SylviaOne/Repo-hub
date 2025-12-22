@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## How do robots eat guacamole? With computer chips.
