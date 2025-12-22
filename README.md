@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
