@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
