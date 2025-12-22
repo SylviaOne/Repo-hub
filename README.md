@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
