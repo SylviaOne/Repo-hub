@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## What did the left eye say to the right eye? Between us, something smells!
