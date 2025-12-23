@@ -1,1 +1,7 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## Wife: Honey I’m pregnant.
+## 
+## Me: Well…. what do we do now?
+## 
+## Wife: Well, I guess we should go to a baby doctor.
+## 
+## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
