@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I've got a joke about vegetables for you... but it's a bit corny.
