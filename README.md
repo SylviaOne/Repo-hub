@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
