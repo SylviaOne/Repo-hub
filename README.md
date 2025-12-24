@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Don't trust atoms. They make up everything.
