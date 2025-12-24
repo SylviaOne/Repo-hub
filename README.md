@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Why did the tree go to the dentist? It needed a root canal.
