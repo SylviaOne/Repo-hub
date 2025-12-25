@@ -1,1 +1,1 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
