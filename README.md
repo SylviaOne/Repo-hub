@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## What do you call a fat psychic? A four-chin teller.
