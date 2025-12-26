@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
