@@ -1,1 +1,3 @@
-## What do you call a fat psychic? A four-chin teller.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
