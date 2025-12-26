@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## I thought about going on an all-almond diet. But that's just nuts.
