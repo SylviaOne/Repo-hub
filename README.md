@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## Two guys walked into a bar, the third one ducked.
