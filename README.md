@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
