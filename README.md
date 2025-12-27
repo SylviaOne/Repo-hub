@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## How do you get two whales in a car? Start in England and drive West.
