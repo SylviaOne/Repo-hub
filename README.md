@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
