@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
