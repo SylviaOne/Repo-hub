@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Coffee has a tough time at my house, every morning it gets mugged.
