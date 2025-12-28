@@ -1,1 +1,2 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
