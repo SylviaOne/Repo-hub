@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
