@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
