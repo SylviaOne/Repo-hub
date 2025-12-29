@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## You know that cemetery up the road? People are dying to get in there.
