@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Where do hamburgers go to dance? The meat-ball.
