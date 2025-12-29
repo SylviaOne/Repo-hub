@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
