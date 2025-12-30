@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
