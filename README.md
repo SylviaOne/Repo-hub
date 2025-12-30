@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
