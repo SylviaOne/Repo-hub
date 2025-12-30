@@ -1,1 +1,2 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why did the cookie cry?
+## Because his mother was a wafer so long
