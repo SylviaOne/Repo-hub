@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
