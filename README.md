@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Two peanuts were walking down the street. One was a salted
