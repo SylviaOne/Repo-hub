@@ -1,1 +1,3 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
