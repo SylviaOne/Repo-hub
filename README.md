@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
