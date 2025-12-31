@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Why do birds fly south for the winter? Because it's too far to walk.
