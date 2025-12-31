@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Did you hear about the bread factory burning down? They say the business is toast.
