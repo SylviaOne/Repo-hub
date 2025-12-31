@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
