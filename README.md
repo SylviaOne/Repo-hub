@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
