@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why did the tomato blush? Because it saw the salad dressing.
