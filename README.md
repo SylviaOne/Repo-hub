@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
