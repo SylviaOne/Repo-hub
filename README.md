@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
