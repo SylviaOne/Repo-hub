@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## This morning I was wondering where the sun was, but then it dawned on me.
