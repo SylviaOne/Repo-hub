@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
