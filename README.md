@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why do fish live in salt water? Because pepper makes them sneeze!
