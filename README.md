@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
