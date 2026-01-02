@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## A termite walks into a bar and asks “Is the bar tender here?”
