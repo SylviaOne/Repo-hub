@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
