@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## What do you call two guys hanging out by your window? Kurt & Rod.
