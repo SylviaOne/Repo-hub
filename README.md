@@ -1,1 +1,2 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What is red and smells like blue paint?
+## Red paint!
