@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
