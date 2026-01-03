@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
