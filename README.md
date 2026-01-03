@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
