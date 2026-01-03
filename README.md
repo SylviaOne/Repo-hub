@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
