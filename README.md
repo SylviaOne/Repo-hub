@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## What do you call two guys hanging out by your window? Kurt & Rod.
