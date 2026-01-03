@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
