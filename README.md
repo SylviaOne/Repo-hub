@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
