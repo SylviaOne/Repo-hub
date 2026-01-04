@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
