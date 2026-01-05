@@ -1,1 +1,3 @@
-## Why do bears have hairy coats? Fur protection.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
