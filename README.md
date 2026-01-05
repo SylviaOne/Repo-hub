@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## What did Yoda say when he saw himself in 4K? "HDMI"
