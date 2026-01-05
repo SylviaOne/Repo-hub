@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Why are graveyards so noisy? Because of all the coffin.
