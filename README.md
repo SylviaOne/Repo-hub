@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
