@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
