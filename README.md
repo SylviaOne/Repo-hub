@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What's brown and sticky? A stick.
