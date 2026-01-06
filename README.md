@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
