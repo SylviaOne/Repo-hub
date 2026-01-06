@@ -1,1 +1,2 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
