@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What did one snowman say to the other snow man? Do you smell carrot?
