@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
