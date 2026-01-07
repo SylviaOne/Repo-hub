@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
