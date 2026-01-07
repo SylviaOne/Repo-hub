@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
