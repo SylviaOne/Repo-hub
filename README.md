@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Some people eat light bulbs. They say it's a nice light snack.
