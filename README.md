@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
