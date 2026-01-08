@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why did the melons plan a big wedding? Because they cantaloupe!
