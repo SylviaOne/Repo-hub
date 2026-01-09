@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
