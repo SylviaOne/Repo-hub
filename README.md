@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
