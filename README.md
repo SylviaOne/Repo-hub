@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I was in an 80's band called the prevention. We were better than the cure.
