@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
