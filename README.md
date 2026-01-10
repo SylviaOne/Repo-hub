@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## No matter how kind you are, German children are kinder.
