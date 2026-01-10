@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
