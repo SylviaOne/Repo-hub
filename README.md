@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## What kind of pants do ghosts wear? Boo jeans.
