@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
