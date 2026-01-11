@@ -1,1 +1,3 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
