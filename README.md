@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
