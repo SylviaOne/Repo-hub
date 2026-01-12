@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## What did the left eye say to the right eye? Between us, something smells!
