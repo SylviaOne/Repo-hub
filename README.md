@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
