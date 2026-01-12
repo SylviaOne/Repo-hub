@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
