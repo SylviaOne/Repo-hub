@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## What kind of tree fits in your hand? A palm tree!
