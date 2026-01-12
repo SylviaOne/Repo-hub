@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## How do robots eat guacamole? With computer chips.
