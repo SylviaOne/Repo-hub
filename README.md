@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
