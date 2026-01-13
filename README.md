@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
