@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
