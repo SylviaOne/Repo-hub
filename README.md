@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
