@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
