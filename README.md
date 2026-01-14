@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## Why did the kid cross the playground? To get to the other slide.
