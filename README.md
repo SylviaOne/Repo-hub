@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
