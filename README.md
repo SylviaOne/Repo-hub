@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## What did one wall say to the other wall? I'll meet you at the corner!
