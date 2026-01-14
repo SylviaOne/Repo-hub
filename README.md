@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What has three letters and starts with gas? A Car.
