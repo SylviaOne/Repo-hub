@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## When does a joke become a dad joke? When it becomes apparent.
