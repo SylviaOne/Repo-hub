@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
