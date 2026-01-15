@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
