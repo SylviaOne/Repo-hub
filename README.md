@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Why are mummys scared of vacation? They're afraid to unwind.
