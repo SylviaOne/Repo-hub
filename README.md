@@ -1,1 +1,1 @@
-## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
