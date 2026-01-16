@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
