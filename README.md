@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
