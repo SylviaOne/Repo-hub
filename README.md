@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Why did the feline fail the lie detector test? Because he be lion.
