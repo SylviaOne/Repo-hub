@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
