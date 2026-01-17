@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why did the clown have neck pain? - Because he slept funny
