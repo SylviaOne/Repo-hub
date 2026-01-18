@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why are snake races so exciting? They're always neck and neck.
