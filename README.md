@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## What is a witch's favorite subject in school? Spelling!
