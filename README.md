@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
