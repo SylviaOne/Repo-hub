@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
