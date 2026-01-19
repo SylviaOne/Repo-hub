@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What did Yoda say when he saw himself in 4K? "HDMI"
