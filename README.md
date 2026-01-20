@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## What do you call a fish with no eyes? A fsh.
