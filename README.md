@@ -1,1 +1,1 @@
-## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
