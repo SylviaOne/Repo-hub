@@ -1,1 +1,1 @@
-## A man was caught stealing in a supermarket today while balanced on the shoulders of a couple of vampires. He was charged with shoplifting on two counts. 
+## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
