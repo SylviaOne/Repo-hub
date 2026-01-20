@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Why are ghosts bad liars? Because you can see right through them!
