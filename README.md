@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What does an angry pepper do? It gets jalapeño face.
