@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why do choirs keep buckets handy? So they can carry their tune
