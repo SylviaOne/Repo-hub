@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## What do you call a boomerang that won't come back? A stick.
