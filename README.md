@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## I’m on a whiskey diet. I’ve lost three days already.
