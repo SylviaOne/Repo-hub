@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
