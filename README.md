@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## New atoms frequently lose electrons when they fail to keep an ion them.
