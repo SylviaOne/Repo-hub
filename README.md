@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
