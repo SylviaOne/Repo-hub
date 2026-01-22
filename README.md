@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## I decided to sell my Hoover… well it was just collecting dust.
