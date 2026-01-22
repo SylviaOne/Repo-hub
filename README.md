@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
