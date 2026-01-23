@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## What kind of tree fits in your hand? A palm tree!
