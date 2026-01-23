@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
