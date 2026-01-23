@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
