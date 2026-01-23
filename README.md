@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What do prisoners use to call each other? Cell phones.
