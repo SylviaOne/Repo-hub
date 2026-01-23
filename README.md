@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## What did one plate say to the other plate? Dinner is on me!
