@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
