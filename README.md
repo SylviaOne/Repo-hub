@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
