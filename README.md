@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
