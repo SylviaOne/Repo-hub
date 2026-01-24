@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
