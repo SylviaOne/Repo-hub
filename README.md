@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Have you ever seen fruit preserves being made? It's jarring.
