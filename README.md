@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
