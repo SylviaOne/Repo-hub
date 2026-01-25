@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## When does a joke become a dad joke? When it becomes apparent.
