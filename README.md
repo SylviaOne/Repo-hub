@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## What did the big flower say to the littler flower? Hi, bud!
