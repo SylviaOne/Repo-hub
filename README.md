@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## We all know where the Big Apple is but does anyone know where the Minneapolis?
