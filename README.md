@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
