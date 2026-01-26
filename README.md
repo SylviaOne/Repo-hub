@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What did one plate say to the other plate? Dinner is on me!
