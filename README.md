@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Me and my mates are in a band called Duvet. We're a cover band.
