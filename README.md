@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
