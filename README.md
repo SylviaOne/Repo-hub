@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Camping is intense.
