@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
