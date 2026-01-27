@@ -1,1 +1,2 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
