@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## People are shocked to discover I have a police record but I love their greatest hits!
