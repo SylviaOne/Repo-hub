@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
