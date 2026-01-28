@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
