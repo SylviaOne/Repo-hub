@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What do you do when your bunny gets wet? You get your hare dryer.
