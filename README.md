@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
