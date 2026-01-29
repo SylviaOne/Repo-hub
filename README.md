@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## How come the stadium got hot after the game? Because all of the fans left.
