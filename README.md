@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What did the digital clock say to the grandfather clock? Look, no hands!
