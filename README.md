@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## What did the left eye say to the right eye? Between us, something smells!
