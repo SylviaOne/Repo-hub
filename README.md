@@ -1,1 +1,3 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
