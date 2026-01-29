@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
