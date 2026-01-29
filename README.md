@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
