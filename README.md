@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## A termite walks into a bar and asks “Is the bar tender here?”
