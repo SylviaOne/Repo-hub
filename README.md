@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why are mummys scared of vacation? They're afraid to unwind.
