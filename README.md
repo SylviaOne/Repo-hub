@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
