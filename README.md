@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Why was it called the dark ages? Because of all the knights. 
