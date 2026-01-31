@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## What has ears but cannot hear? A field of corn.
