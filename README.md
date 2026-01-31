@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
