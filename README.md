@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
