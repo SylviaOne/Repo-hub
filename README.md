@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What do you get hanging from Apple trees? Sore arms.
