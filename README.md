@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## The urge to sing the Lion King song is just a whim away.
