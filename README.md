@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
