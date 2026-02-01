@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## I burned 2000 calories today, I left my food in the oven for too long.
