@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## Where do sheep go to get their hair cut? The baa-baa shop.
