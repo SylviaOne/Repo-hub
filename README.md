@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
