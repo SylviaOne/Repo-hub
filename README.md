@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
