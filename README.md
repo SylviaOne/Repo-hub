@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
