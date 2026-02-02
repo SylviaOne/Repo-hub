@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
