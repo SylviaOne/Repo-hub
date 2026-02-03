@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
