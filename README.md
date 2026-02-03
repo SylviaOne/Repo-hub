@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
