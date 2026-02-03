@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## When does a joke become a dad joke? When it becomes apparent.
