@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## Why did the m&m go to school? Because it wanted to be a Smartie!
