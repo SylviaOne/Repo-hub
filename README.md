@@ -1,1 +1,2 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## What's large, grey, and doesn't matter?
+## An irrelephant.
