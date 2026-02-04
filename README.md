@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
