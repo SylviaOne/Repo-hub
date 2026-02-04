@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
