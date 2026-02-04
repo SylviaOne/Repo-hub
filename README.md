@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
