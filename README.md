@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
