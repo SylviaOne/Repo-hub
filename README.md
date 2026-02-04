@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What do you call two guys hanging out by your window? Kurt & Rod.
