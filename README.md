@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## A steak pun is a rare medium well done.
