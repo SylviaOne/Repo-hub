@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
