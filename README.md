@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## How do robots eat guacamole? With computer chips.
