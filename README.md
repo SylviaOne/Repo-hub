@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
