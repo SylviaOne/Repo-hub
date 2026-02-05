@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Chances are if you' ve seen one shopping center, you've seen a mall.
