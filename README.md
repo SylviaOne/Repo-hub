@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## What do birds give out on Halloween? Tweets.
