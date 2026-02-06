@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
