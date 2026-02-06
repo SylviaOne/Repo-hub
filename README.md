@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
