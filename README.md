@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## What creature is smarter than a talking parrot? A spelling bee.
