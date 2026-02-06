@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
