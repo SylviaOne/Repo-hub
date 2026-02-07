@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why are graveyards so noisy? Because of all the coffin.
