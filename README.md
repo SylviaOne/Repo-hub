@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## I considered building the patio by myself. But I didn't have the stones.
