@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
