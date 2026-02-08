@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
