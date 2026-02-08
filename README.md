@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
