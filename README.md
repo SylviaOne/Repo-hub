@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
