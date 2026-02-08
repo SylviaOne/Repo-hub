@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
