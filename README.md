@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
