@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
