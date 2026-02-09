@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
