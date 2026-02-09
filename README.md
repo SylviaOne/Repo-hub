@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## I’m on a whiskey diet. I’ve lost three days already.
