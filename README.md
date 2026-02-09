@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
