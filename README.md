@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
