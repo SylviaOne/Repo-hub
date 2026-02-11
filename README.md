@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
