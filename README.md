@@ -1,1 +1,2 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
