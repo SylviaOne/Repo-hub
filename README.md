@@ -1,1 +1,3 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
