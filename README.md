@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
