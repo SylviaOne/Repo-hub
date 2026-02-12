@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
