@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
