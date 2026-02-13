@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## R.I.P. boiled water. You will be mist.
