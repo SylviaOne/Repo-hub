@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What kind of award did the dentist receive? A little plaque.
