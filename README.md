@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## How come a man driving a train got struck by lightning? He was a good conductor.
