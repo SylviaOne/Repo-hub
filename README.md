@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
