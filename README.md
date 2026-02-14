@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
