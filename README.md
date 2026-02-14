@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
