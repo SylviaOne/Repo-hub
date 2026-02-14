@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
