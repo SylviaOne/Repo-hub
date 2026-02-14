@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## What does a clock do when it's hungry? It goes back four seconds!
