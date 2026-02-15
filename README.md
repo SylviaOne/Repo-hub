@@ -1,1 +1,2 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
