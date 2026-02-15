@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
