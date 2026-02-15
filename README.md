@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What do you call a monkey in a mine field? A babooooom!
