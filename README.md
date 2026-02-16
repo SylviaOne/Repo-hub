@@ -1,1 +1,2 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
