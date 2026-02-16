@@ -1,1 +1,3 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
