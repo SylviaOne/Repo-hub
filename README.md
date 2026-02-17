@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
