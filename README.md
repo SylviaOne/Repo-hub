@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## What do you call an alligator in a vest? An in-vest-igator!
