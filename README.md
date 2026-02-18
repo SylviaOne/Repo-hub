@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Two silk worms had a race. They ended up in a tie.
