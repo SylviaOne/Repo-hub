@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## I used to hate facial hair, but then it grew on me.
