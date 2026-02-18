@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## What did the calculator say to the student? You can count on me.
