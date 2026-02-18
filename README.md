@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## How do you get two whales in a car? Start in England and drive West.
