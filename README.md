@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
