@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
