@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I used to work for a soft drink can crusher. It was soda pressing.
