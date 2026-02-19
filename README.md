@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What time did the man go to the dentist? Tooth hurt-y.
