@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
