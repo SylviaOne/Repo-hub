@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
