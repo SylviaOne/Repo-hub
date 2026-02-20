@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Camping is intense.
