@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## My boss told me to have a good day... so I went home.
