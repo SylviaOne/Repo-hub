@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What was a more important invention than the first telephone? The second one.
