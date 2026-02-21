@@ -1,1 +1,2 @@
-## What was a more important invention than the first telephone? The second one.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
