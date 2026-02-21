@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## I have kleptomania, but when it gets bad, I take something for it.
