@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Whiteboards ... are remarkable.
