@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
