@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What do you call a cow with no legs? Ground beef.
