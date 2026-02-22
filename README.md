@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
