@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
