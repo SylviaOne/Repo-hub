@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Did you know that ghosts call their true love their ghoul-friend?
