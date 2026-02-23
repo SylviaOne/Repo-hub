@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
