@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
