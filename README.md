@@ -1,1 +1,1 @@
-## What do you call a guy lying on your doorstep? Matt.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
