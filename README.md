@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
