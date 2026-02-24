@@ -1,1 +1,3 @@
-## What did the fish say when it swam into a wall? Damn!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
