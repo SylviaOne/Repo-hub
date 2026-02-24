@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## How do you teach a kid to climb stairs? There is a step by step guide.
