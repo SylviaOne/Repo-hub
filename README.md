@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
