@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
