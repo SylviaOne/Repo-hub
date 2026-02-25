@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Where do rabbits go after they get married? On a bunny-moon.
