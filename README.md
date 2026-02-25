@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why do cows not have toes? They lactose!
