@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## What did the shy pebble wish for? That she was a little boulder.
