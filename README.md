@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
