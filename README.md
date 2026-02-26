@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
