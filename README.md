@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## My son is studying to be a surgeon, I just hope he makes the cut.
