@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
