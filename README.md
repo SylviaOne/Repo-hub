@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
