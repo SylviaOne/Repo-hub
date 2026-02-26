@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
