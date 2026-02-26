@@ -1,1 +1,3 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
