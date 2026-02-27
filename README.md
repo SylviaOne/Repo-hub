@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
