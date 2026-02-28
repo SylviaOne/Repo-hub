@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
