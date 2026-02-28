@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
