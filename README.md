@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
