@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Two silk worms had a race. They ended up in a tie.
