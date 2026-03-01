@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## What do you call a duck that gets all A's? A wise quacker.
