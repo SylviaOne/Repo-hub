@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
