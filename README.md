@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
