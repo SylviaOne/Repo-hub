@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## What did one plate say to the other plate? Dinner is on me!
