@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
