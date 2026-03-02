@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
