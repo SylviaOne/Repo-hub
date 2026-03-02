@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
