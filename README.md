@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
