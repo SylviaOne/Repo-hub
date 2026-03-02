@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why did the feline fail the lie detector test? Because he be lion.
