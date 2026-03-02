@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
