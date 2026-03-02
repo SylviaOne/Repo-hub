@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## I'd like to start a diet, but I've got too much on my plate right now.
