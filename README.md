@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
