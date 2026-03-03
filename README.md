@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
