@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Never take advice from electrons. They are always negative.
