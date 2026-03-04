@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
