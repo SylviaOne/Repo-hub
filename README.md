@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## I don't trust sushi, there's something fishy about it.
