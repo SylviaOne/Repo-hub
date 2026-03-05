@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What do you call a group of killer whales playing instruments? An Orca-stra.
