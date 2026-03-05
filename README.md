@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
