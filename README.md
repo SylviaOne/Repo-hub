@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
