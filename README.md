@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## How do you steal a coat? You jacket.
