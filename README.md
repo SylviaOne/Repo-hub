@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Writing with a broken pencil is pointless.
