@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
