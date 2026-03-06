@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
