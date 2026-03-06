@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## Do you know where you can get chicken broth in bulk? The stock market.
