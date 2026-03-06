@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
