@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## When is a door not a door? When it's ajar.
