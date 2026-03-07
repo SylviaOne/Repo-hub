@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## What's the best thing about elevator jokes? They work on so many levels.
