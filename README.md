@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## I'd like to start a diet, but I've got too much on my plate right now.
