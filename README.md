@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
