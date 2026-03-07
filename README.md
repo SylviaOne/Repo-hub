@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
