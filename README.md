@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
