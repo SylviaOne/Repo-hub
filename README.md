@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
