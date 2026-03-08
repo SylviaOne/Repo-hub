@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## I used to work for a soft drink can crusher. It was soda pressing.
