@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
