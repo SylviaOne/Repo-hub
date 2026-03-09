@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## What did the digital clock say to the grandfather clock? Look, no hands!
