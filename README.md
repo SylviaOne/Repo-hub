@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
