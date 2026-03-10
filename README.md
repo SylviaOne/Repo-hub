@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Camping is intense.
