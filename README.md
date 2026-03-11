@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Someone asked me to name two structures that hold water. I said "Well dam"
