@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What animal is always at a game of cricket? A bat.
