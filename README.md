@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## I knew a guy who collected candy canes, they were all in mint condition
