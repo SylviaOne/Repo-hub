@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Two peanuts were walking down the street. One was a salted.
