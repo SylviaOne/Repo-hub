@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## I boiled a funny bone last night and had a laughing stock
