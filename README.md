@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## Why was the robot angry? Because someone kept pressing his buttons!
