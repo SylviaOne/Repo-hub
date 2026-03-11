@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
