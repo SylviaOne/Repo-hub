@@ -1,1 +1,2 @@
-## I boiled a funny bone last night and had a laughing stock
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
