@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
