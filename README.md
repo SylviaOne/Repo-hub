@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
