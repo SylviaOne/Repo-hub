@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
