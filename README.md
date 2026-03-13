@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
