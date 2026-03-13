@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
