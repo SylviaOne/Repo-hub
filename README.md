@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
