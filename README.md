@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## What did the beaver say to the tree? It's been nice gnawing you.
