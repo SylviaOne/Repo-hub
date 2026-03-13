@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
