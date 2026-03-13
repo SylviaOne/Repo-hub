@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
