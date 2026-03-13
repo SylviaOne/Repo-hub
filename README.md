@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
