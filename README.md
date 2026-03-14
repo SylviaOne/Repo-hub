@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Where does Napoleon keep his armies? In his sleevies.
