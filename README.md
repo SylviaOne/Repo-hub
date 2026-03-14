@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
