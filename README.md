@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## How do you organize a space party? You planet.
