@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Ever wondered why bees hum? It's because they don't know the words.
