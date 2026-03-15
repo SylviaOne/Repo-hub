@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## What do you call a fat psychic? A four-chin teller.
