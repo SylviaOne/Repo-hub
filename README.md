@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
