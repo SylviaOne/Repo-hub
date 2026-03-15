@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
