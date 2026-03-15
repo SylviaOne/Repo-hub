@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
