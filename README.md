@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Two guys walked into a bar, the third one ducked.
