@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
