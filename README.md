@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
