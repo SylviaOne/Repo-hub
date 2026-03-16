@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why do bears have hairy coats? Fur protection.
