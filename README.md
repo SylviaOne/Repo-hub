@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
