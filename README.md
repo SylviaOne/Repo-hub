@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
