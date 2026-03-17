@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Want to hear a joke about construction? Nah, I'm still working on it.
