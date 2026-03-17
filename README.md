@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## What did the fish say when it swam into a wall? Damn!
