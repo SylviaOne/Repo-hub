@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
