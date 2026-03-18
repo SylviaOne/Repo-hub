@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
