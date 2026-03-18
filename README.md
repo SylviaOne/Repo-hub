@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## I wouldn't buy anything with velcro. It's a total rip-off.
