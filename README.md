@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
