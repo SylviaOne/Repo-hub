@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
