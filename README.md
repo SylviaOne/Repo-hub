@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
