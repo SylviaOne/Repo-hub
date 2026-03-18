@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Why didn’t the orange win the race? It ran out of juice.
