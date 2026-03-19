@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Why does Superman get invited to dinners? Because he is a Supperhero.
