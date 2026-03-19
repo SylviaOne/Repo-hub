@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
