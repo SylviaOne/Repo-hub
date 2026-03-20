@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Why did the melons plan a big wedding? Because they cantaloupe!
