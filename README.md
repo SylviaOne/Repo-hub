@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
