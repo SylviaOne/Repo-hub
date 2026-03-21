@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Why did the sentence fail the driving test? It never came to a full stop.
