@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
