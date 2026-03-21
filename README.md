@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## What did the ocean say to the beach? Thanks for all the sediment.
