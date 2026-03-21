@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## People are making apocalypse jokes like there’s no tomorrow.
