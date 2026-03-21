@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
