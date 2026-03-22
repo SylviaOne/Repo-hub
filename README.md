@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## I boiled a funny bone last night and had a laughing stock
