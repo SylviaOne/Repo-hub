@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What did the shy pebble wish for? That she was a little boulder.
