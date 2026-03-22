@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## When does a joke become a dad joke? When it becomes apparent.
