@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## I boiled a funny bone last night and had a laughing stock
