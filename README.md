@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Animal Fact #25: Most bobcats are not named bob.
