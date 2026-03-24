@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## "I'll call you later." Don't call me later, call me Dad.
