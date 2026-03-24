@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What do you get when you cross a snowman with a vampire? Frostbite.
