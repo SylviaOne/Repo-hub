@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
