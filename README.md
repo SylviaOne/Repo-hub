@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## I heard there was a new store called Moderation. They have everything there
