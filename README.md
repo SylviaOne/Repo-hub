@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
