@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
