@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
