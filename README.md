@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## I wouldn't buy anything with velcro. It's a total rip-off.
