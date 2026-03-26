@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
