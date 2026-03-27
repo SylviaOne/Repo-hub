@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Mountains aren't just funny, they are hill areas
