@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
