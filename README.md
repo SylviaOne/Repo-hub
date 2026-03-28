@@ -1,1 +1,3 @@
-## What kind of music do mummy's like? Rap
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
