@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
