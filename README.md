@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
