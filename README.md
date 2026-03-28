@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## How do you teach a kid to climb stairs? There is a step by step guide.
