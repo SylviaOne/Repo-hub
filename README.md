@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## New atoms frequently lose electrons when they fail to keep an ion them.
