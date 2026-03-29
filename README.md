@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
