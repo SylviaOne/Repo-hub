@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
