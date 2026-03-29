@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why did the sentence fail the driving test? It never came to a full stop.
