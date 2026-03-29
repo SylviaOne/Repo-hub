@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
