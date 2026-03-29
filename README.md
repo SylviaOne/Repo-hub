@@ -1,1 +1,3 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
