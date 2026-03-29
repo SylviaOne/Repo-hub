@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
