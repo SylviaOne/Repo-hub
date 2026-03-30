@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
