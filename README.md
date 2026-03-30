@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Why do pirates not know the alphabet? They always get stuck at "C".
