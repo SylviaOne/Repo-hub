@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## I’m on a whiskey diet. I’ve lost three days already.
