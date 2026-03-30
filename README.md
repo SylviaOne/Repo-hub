@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
