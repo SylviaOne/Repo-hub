@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## What do you call a dad that has fallen through the ice? A Popsicle.
