@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
