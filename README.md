@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
