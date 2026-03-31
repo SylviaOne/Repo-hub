@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## What do you call a droid that takes the long way around? R2 detour.
