@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
