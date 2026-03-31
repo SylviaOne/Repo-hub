@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
