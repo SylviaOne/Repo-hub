@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
