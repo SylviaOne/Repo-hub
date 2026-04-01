@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
