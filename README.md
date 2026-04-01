@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
