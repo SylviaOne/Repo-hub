@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Remember, the best angle to approach a problem from is the "try" angle.
