@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## what do you call a dog that can do magic tricks? a labracadabrador
