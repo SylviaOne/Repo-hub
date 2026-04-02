@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## When is a door not a door? When it's ajar.
