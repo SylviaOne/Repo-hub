@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why do bees hum? Because they don't know the words.
