@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## What do you get hanging from Apple trees? Sore arms.
