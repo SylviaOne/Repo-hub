@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
