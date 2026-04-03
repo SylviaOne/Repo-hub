@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## I was going to get a brain transplant, but I changed my mind
