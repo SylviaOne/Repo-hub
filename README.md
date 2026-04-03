@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
