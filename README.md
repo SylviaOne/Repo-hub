@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## Don't tell secrets in corn fields. Too many ears around.
