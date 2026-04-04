@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
