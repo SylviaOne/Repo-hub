@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
