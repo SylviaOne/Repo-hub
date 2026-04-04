@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
