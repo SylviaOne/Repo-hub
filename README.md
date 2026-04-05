@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
