@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## A cannibal is someone who is fed up with people.
