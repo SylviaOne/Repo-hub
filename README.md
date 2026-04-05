@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
