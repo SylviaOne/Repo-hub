@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
