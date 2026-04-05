@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
