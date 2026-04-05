@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## What don't watermelons get married? Because they cantaloupe.
