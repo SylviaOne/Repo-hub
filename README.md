@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
