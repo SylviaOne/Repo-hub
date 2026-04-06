@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
