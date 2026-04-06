@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
