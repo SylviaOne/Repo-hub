@@ -1,1 +1,2 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
