@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
