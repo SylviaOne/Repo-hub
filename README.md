@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
