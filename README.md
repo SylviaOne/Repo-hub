@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-## "Pop," goes the weasel.
+## There's not really any training for garbagemen. They just pick things up as they go.
