@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
