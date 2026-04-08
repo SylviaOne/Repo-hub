@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## What do you do when your bunny gets wet? You get your hare dryer.
