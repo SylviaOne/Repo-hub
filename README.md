@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
