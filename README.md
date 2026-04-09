@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
