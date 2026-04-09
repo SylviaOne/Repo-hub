@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Did you hear about the bread factory burning down? They say the business is toast.
