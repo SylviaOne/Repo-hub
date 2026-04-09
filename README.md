@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## I decided to sell my Hoover… well it was just collecting dust.
