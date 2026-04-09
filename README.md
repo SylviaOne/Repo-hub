@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
