@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
