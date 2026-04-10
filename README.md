@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
