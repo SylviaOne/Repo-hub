@@ -1,1 +1,2 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
