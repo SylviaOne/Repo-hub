@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
