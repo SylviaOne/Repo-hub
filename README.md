@@ -1,1 +1,3 @@
-## Why was the broom late for the meeting? He overswept.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
