@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Two peanuts were walking down the street. One was a salted
