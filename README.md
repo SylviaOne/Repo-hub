@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why are graveyards so noisy? Because of all the coffin.
