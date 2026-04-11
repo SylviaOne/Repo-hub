@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
