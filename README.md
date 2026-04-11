@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## How do locomotives know where they're going? Lots of training
