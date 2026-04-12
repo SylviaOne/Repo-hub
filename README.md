@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## I couldn't figure out how the seat belt worked. Then it just clicked.
