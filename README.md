@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why was the robot angry? Because someone kept pressing his buttons!
