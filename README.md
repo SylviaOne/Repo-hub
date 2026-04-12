@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
