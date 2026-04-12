@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
