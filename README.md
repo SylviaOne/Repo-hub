@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
