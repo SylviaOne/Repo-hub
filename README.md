@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Why do choirs keep buckets handy? So they can carry their tune
