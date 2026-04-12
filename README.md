@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
