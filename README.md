@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## I have kleptomania, but when it gets bad, I take something for it.
