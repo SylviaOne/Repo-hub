@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
