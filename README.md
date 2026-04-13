@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
