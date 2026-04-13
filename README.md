@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
