@@ -1,1 +1,1 @@
-## What is the leading cause of dry skin? Towels
+## What is a vampire's favorite fruit? A blood orange.
