@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
