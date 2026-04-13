@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## A Skeleton walked into a bar he said I need a beer and a mop
