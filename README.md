@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## What is a vampire's favorite fruit? A blood orange.
