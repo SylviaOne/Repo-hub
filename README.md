@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
