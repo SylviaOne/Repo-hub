@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Geology rocks, but Geography is where it's at!
