@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I wouldn't buy anything with velcro. It's a total rip-off.
