@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
