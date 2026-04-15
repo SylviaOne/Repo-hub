@@ -1,1 +1,1 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## Thanks for explaining the word "many" to me. It means a lot.
