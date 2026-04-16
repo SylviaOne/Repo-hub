@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
