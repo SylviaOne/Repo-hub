@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## My sea sickness comes in waves.
