@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## How was the snow globe feeling after the storm? A little shaken.
