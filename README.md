@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## I used to hate facial hair, but then it grew on me.
