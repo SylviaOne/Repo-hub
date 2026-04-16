@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## How does a French skeleton say hello? Bone-jour.
