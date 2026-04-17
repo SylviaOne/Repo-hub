@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
