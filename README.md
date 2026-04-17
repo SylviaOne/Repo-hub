@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## How do you make a hankie dance? Put a little boogie in it.
