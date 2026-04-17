@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
