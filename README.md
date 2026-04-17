@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## I'll tell you what often gets over looked... garden fences.
