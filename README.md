@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
