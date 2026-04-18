@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
