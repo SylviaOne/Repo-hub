@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## What do you do when your bunny gets wet? You get your hare dryer.
