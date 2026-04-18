@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
