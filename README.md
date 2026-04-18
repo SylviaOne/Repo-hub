@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
