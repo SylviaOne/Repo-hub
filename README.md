@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
