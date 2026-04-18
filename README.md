@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
