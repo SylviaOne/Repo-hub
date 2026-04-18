@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
