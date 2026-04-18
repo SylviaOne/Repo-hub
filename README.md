@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
