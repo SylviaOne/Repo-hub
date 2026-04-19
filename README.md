@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
