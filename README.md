@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
