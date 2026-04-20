@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What do you call a dad that has fallen through the ice? A Popsicle.
