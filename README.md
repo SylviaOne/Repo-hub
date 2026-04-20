@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
