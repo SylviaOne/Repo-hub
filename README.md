@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
