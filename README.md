@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
