@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I broke my finger at work today, on the other hand I'm completely fine.
