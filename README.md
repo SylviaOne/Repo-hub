@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
