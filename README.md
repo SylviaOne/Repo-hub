@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
