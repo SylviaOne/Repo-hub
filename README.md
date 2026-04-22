@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
