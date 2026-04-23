@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
