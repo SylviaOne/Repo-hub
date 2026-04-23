@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
