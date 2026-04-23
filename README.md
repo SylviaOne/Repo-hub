@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
