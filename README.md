@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
