@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Thanks for explaining the word "many" to me. It means a lot.
