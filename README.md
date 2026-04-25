@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
