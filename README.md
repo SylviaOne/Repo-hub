@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
