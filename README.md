@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## When is a door not a door? When it's ajar.
