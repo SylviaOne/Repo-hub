@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why was ten scared of seven? Because seven ate nine.
