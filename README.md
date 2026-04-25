@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
