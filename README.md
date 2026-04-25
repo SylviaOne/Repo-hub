@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
