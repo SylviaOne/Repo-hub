@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
