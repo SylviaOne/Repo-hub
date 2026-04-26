@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## I'd like to start a diet, but I've got too much on my plate right now.
