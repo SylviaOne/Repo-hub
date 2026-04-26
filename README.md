@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
