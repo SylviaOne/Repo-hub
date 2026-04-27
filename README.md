@@ -1,1 +1,1 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
