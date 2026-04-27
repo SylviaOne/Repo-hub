@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
