@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Why did the belt go to prison? He held up a pair of pants!
