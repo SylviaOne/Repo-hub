@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
