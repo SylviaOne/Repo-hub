@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
