@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
