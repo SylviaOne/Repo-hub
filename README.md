@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## What animal is always at a game of cricket? A bat.
