@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
