@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
