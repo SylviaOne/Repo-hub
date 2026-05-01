@@ -1,1 +1,2 @@
-## I ate a clock yesterday. It was so time consuming.
+## Where do cats write notes?
+## Scratch Paper!
