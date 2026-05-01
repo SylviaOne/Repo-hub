@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
