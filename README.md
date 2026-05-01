@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
