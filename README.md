@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
