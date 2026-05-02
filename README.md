@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
