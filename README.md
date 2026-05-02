@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## "I'll call you later." Don't call me later, call me Dad.
