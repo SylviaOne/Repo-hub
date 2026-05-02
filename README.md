@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
