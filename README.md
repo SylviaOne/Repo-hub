@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## The best time on a clock is 6:30--hands down.
