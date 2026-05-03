@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## I gave all my dead batteries away today, free of charge.
