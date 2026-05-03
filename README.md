@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
