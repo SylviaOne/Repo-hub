@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
