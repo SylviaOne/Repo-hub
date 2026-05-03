@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## It doesn't matter how much you push the envelope. It will still be stationary.
