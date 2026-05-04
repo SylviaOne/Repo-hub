@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
