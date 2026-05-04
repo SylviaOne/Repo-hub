@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
