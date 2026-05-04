@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## What's the best thing about elevator jokes? They work on so many levels.
