@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
