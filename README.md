@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## What do you call an alligator in a vest? An in-vest-igator!
