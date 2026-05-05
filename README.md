@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
