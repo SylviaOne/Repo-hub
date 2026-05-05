@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
