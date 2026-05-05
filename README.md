@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
