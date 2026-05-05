@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
