@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## What did the dog say to the two trees? Bark bark.
