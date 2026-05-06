@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
