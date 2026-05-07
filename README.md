@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Where did you learn to make ice cream? Sunday school.
