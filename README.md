@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
