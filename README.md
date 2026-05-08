@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
