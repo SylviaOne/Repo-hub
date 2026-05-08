@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
