@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## I used to work in a shoe recycling shop. It was sole destroying.
