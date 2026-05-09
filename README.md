@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What's orange and sounds like a parrot? A Carrot.
