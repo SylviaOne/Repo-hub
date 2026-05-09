@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
