@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Why did the tree go to the dentist? It needed a root canal.
