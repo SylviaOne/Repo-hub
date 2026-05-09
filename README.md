@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
