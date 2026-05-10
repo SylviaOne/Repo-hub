@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why was the strawberry sad? Its parents were in a jam.
