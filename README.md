@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
