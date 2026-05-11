@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What did one snowman say to the other snow man? Do you smell carrot?
