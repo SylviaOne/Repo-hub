@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
