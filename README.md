@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
