@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
