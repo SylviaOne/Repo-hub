@@ -1,1 +1,3 @@
-## When you have a bladder infection, urine trouble.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
