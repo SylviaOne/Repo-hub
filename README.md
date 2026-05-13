@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
