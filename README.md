@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## What does a pirate pay for his corn? A buccaneer!
