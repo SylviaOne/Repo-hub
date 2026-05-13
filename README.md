@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
