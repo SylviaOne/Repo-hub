@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
