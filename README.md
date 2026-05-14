@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
