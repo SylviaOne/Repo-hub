@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## Whoever invented the knock-knock joke should get a no bell prize.
