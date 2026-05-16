@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
