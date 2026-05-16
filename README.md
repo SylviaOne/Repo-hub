@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## When does a joke become a dad joke? When it becomes apparent.
