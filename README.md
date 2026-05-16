@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Where do sheep go to get their hair cut? The baa-baa shop.
