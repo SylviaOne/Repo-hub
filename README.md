@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
