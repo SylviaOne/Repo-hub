@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
