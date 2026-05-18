@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Where do rabbits go after they get married? On a bunny-moon.
