@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
