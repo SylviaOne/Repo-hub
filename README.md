@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
