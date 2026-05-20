@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## What happens to a frog's car when it breaks down? It gets toad.
