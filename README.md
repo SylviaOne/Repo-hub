@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Have you heard about corduroy pillows?  They're making headlines!
