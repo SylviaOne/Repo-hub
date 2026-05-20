@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What do you call your friend who stands in a hole? Phil.
