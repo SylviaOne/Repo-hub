@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## Where did Captain Hook get his hook? From a second hand store.
