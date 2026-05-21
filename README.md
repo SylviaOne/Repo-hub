@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
