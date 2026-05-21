@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
