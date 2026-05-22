@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-## I know he means well.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
