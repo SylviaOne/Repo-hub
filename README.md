@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
