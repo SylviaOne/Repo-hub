@@ -1,1 +1,2 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
