@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
