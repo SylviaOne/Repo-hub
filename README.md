@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## When does a joke become a dad joke? When it becomes apparent.
