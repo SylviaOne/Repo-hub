@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Did you hear about the kidnapping at school? It's ok, he woke up.
