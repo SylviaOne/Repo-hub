@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
