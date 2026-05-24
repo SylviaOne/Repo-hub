@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
