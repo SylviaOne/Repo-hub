@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Without geometry life is pointless.
