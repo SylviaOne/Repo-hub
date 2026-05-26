@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## What do you call a fly without wings? A walk.
