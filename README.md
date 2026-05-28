@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
