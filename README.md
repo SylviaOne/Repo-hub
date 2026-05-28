@@ -1,2 +1,1 @@
-## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
-## I have no words to describe how angry I am.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
