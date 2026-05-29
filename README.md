@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
