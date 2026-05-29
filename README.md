@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
