@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
