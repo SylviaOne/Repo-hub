@@ -1,1 +1,2 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
