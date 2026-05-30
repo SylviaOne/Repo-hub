@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
