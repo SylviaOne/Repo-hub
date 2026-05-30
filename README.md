@@ -1,1 +1,2 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## What's the difference between a seal and a sea lion?
+## An ion! 
