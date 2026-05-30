@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Who is the coolest Doctor in the hospital? The hip Doctor!
