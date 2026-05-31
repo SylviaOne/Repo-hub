@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
