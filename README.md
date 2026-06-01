@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
