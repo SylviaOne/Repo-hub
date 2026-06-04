@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
