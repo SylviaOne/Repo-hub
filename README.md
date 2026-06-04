@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Want to hear a joke about construction? Nah, I'm still working on it.
