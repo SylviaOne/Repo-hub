@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## I've got a joke about vegetables for you... but it's a bit corny.
