@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What kind of tree fits in your hand? A palm tree!
