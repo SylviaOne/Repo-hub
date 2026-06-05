@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
