@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
