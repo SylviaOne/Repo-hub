@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Camping is intense.
