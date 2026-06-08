@@ -1,1 +1,3 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
