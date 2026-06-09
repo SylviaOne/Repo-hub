@@ -1,1 +1,2 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
