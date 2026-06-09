@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
