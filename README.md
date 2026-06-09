@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
