@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
