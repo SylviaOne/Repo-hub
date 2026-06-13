@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Remember, the best angle to approach a problem from is the "try" angle.
