@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What kind of tree fits in your hand? A palm tree!
