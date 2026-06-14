@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why did the coffee file a police report? It got mugged.
