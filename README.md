@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
