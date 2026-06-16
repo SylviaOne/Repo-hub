@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What do prisoners use to call each other? Cell phones.
