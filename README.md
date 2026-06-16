@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## What did the ocean say to the shore? Nothing, it just waved.
