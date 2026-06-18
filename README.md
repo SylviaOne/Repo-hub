@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
