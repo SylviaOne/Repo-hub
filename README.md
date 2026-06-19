@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## What did the shy pebble wish for? That she was a little boulder.
