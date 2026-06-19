@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
