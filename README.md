@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why can't a bicycle stand on its own? It's two-tired.
