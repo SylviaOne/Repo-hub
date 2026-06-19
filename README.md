@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Where did Captain Hook get his hook? From a second hand store.
