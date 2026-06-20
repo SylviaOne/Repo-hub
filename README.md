@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Remember, the best angle to approach a problem from is the "try" angle.
