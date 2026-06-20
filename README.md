@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
