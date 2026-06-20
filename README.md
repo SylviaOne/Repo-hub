@@ -1,1 +1,1 @@
-## Camping is intense.
+## When is a door not a door? When it's ajar.
