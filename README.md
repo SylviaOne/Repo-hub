@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
