@@ -1,1 +1,1 @@
-## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
