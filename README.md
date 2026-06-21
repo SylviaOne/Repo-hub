@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## What is a vampire's favorite fruit? A blood orange.
