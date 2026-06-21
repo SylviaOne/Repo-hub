@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
