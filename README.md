@@ -1,1 +1,2 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
