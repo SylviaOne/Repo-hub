@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
