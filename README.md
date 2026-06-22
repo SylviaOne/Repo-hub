@@ -1,1 +1,2 @@
-## My boss told me to have a good day... so I went home.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
