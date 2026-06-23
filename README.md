@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
