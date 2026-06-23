@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
