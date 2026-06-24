@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## What creature is smarter than a talking parrot? A spelling bee.
