@@ -1,1 +1,2 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
