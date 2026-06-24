@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
