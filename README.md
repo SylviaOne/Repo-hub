@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
