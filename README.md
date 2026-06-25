@@ -1,1 +1,2 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
