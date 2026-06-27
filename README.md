@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
