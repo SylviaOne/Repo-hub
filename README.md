@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why did the melons plan a big wedding? Because they cantaloupe!
