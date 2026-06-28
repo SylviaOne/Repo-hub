@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Why don't eggs tell jokes? They'd crack each other up
