@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## How come the stadium got hot after the game? Because all of the fans left.
