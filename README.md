@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
