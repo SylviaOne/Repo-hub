@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## I started a new business making yachts in my attic this year...the sails are going through the roof
