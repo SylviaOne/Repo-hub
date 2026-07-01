@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What did the fish say when it swam into a wall? Damn!
