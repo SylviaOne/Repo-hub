@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
