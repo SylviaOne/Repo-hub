@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## I used to hate facial hair, but then it grew on me.
