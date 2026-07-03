@@ -1,1 +1,2 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
