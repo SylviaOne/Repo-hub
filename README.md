@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
