@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## How does Darth Vader like his toast? On the dark side.
