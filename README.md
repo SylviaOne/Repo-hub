@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## How was the snow globe feeling after the storm? A little shaken.
