@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I burned 2000 calories today, I left my food in the oven for too long.
