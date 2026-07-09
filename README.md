@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## What’s E.T. short for? He’s only got little legs.
