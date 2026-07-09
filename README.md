@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I wanted to be a tailor but I didn't suit the job
