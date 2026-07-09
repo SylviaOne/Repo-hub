@@ -1,1 +1,1 @@
-## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
