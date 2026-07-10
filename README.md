@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
