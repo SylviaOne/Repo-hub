@@ -1,1 +1,2 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
