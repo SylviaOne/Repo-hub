@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
