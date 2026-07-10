@@ -1,1 +1,1 @@
-## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
