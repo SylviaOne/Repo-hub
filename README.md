@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
