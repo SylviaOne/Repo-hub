@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
