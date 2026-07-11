@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
