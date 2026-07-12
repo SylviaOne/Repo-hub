@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## What kind of pants do ghosts wear? Boo jeans.
