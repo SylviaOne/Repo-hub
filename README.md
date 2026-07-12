@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
