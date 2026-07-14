@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
