@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## What don't watermelons get married? Because they cantaloupe.
