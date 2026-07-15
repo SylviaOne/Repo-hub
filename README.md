@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
