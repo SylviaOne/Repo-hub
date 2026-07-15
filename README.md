@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
