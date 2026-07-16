@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why do ducks make great detectives? They always quack the case.
