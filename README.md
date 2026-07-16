@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
