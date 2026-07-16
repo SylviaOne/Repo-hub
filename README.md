@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
