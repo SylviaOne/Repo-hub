@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## I had a dream that I was a muffler last night. I woke up exhausted!
