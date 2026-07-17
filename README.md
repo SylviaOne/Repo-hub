@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
