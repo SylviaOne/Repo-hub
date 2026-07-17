@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Why did the tree go to the dentist? It needed a root canal.
