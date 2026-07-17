@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## An apple a day keeps the bullies away. If you throw it hard enough.
