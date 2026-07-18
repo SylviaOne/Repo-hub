@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
