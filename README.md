@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
