@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
