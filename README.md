@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
