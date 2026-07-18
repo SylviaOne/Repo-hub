@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
