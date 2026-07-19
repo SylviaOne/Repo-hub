@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
