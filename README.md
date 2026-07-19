@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
