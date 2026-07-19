@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
