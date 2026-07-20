@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Where do rabbits go after they get married? On a bunny-moon.
