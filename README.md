@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
