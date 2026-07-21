@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## What does an angry pepper do? It gets jalapeño face.
