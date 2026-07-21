@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
