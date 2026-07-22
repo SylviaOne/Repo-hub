@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
