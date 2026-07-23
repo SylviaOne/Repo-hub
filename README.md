@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
