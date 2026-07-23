@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Two guys walked into a bar, the third one ducked.
