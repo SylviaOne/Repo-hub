@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
