@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## How do you organize a space party? You planet.
