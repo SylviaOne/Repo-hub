@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## How do you find Will Smith in the snow?  Look for fresh prints.
