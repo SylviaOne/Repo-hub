@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## How can you tell a vampire has a cold? They start coffin.
