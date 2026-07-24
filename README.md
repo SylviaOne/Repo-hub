@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## It doesn't matter how much you push the envelope. It will still be stationary.
