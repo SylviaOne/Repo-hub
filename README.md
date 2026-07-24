@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
