@@ -1,1 +1,3 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
