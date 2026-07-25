@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
