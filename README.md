@@ -1,1 +1,2 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
