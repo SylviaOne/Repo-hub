@@ -1,1 +1,2 @@
-## When do doctors get angry? When they run out of patients.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
