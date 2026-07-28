@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## How can you tell a vampire has a cold? They start coffin.
