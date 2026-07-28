@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
