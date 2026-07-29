@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## What does an angry pepper do? It gets jalapeño face.
