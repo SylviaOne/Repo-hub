@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
