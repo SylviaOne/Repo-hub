@@ -1,1 +1,3 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
