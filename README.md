@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## An apple a day keeps the bullies away. If you throw it hard enough.
