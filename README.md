@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Which side of the chicken has more feathers? The outside.
