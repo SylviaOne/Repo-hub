@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
