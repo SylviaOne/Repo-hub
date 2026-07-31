@@ -1,1 +1,3 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
