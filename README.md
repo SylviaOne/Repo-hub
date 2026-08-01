@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
