@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
