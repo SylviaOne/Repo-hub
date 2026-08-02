@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
