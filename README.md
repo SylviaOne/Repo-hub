@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## Why do bees have sticky hair? Because they use honey combs!
