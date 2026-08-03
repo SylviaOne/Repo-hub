@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
