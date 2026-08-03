@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
