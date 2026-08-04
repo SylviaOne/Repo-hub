@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## How does a French skeleton say hello? Bone-jour.
