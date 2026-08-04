@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
