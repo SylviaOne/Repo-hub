@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Two dyslexics walk into a bra.
