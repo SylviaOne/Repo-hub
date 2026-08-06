@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## I used to be a banker, but I lost interest.
