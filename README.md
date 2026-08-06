@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
