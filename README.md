@@ -1,1 +1,1 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
