@@ -1,1 +1,2 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
