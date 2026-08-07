@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
