@@ -1,1 +1,2 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why did the cookie cry?
+## Because his mother was a wafer so long
