@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## Why did the tree go to the dentist? It needed a root canal.
