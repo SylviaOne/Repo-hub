@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
