@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## “My Dog has no nose.” “How does he smell?” “Awful”
