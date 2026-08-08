@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I just broke my guitar. It's okay, I won't fret
