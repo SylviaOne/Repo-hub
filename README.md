@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
