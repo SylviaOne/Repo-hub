@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
