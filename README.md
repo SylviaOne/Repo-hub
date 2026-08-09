@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
