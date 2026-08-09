@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
