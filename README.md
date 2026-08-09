@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
