@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
