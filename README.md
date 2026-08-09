@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
