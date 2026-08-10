@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
