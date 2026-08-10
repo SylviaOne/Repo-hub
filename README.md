@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
