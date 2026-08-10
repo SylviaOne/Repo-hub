@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
