@@ -1,1 +1,1 @@
-## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
