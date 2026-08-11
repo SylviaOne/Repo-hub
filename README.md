@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
