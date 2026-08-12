@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## What's black and white and read all over? The newspaper.
