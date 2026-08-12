@@ -1,1 +1,1 @@
-## I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
