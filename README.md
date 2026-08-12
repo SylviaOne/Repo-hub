@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## I just wrote a book on reverse psychology. Do not read it!
