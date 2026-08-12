@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## I was in an 80's band called the prevention. We were better than the cure.
