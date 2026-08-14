@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
