@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
