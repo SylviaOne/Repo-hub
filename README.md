@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
