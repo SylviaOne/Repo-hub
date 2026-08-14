@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## I used to be addicted to the hokey pokey, but I turned myself around.
