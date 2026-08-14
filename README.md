@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
