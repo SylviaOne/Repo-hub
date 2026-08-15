@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## What did the left eye say to the right eye? Between us, something smells!
