@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
