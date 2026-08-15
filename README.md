@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## A steak pun is a rare medium well done.
