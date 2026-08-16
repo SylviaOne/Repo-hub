@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## What does a pirate pay for his corn? A buccaneer!
