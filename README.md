@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
