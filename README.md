@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## I'd like to start a diet, but I've got too much on my plate right now.
