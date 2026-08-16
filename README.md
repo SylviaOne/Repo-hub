@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
