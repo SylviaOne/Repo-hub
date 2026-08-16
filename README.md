@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
