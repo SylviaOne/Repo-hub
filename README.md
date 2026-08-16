@@ -1,1 +1,2 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
