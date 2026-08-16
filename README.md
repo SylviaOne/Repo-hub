@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
