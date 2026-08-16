@@ -1,1 +1,3 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
