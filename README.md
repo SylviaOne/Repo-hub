@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
