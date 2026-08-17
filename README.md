@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What kind of tree fits in your hand? A palm tree!
