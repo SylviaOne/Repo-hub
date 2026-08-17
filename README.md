@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
