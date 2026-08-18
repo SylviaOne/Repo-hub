@@ -1,1 +1,2 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
