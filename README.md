@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
