@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## I used to work for a soft drink can crusher. It was soda pressing.
