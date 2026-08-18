@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
