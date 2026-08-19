@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
