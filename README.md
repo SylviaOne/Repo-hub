@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## If at first you don't succeed, sky diving is not for you!
