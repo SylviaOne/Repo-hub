@@ -1,1 +1,2 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
