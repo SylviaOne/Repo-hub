@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
