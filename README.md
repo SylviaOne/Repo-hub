@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What time did the man go to the dentist? Tooth hurt-y.
