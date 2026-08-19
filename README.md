@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
