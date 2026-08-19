@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## What's brown and sticky? A stick.
