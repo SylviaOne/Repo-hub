@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## The best time on a clock is 6:30--hands down.
