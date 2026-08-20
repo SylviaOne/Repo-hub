@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
