@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
