@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## I couldn't get a reservation at the library. They were completely booked.
