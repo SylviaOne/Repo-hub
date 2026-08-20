@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
