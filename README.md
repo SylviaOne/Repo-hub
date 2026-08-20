@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
