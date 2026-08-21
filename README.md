@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Some people eat light bulbs. They say it's a nice light snack.
