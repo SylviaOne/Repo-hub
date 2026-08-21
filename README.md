@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## What's the best thing about elevator jokes? They work on so many levels.
