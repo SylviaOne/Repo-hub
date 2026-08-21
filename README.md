@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
