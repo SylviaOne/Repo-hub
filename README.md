@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
