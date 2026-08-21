@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
