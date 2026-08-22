@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## I burned 2000 calories today, I left my food in the oven for too long.
