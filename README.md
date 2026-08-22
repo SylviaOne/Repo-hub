@@ -1,1 +1,3 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
