@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
