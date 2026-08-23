@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## There's not really any training for garbagemen. They just pick things up as they go.
