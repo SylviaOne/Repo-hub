@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## What is a vampire's favorite fruit? A blood orange.
