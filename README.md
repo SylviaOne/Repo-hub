@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## Did you hear about the two thieves who stole a calendar? They each got six months.
