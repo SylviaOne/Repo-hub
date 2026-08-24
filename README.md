@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Where do fish keep their money? In the riverbank
