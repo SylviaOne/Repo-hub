@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## People are making apocalypse jokes like there’s no tomorrow.
