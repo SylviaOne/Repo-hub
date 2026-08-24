@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## How come the stadium got hot after the game? Because all of the fans left.
