@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
