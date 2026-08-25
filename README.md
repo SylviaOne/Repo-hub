@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
