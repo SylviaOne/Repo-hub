@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## What did the calculator say to the student? You can count on me.
