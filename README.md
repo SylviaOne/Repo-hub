@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Me and my mates are in a band called Duvet. We're a cover band.
