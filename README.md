@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Why was the strawberry sad? Its parents were in a jam.
