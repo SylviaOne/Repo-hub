@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
