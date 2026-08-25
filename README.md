@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
