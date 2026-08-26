@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-## I know he means well.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
