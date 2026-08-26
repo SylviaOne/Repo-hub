@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## I wouldn't buy anything with velcro. It's a total rip-off.
