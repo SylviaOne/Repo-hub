@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What do you call a dad that has fallen through the ice? A Popsicle.
