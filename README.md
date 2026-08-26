@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What has ears but cannot hear? A field of corn.
