@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## What kind of dinosaur loves to sleep? A stega-snore-us.
