@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## What is a tornado's favorite game to play? Twister!
