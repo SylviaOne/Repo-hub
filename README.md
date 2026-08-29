@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
