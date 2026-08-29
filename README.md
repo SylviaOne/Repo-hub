@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## What don't watermelons get married? Because they cantaloupe.
