@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
