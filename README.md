@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What do you do on a remote island? Try and find the TV island it belongs to.
