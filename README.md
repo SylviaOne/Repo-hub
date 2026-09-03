@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
