@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why was the picture sent to prison? It was framed.
