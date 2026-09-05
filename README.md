@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Why did the chicken get a penalty? For fowl play.
