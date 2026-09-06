@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I just broke my guitar. It's okay, I won't fret
