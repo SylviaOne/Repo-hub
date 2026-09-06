@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## What has three letters and starts with gas? A Car.
