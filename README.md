@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## A steak pun is a rare medium well done.
