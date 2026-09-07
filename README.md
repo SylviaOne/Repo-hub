@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## New atoms frequently lose electrons when they fail to keep an ion them.
