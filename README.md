@@ -1,1 +1,3 @@
-## Never take advice from electrons. They are always negative.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
