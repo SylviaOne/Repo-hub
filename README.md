@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
