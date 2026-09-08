@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
