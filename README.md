@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
