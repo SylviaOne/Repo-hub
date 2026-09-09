@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## “My Dog has no nose.” “How does he smell?” “Awful”
