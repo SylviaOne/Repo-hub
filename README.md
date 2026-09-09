@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why do ducks make great detectives? They always quack the case.
