@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Some people eat light bulbs. They say it's a nice light snack.
