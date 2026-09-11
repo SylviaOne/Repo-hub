@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## It takes guts to be an organ donor.
