@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What's brown and sticky? A stick.
