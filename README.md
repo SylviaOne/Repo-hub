@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
