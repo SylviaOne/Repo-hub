@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
