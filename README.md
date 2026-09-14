@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
