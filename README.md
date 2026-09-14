@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
