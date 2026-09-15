@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## The best time on a clock is 6:30--hands down.
