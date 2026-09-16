@@ -1,1 +1,2 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Why did the cookie cry?
+## Because his mother was a wafer so long
