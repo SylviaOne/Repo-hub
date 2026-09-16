@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
