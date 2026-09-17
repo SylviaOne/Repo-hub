@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Where does Napoleon keep his armies? In his sleevies.
