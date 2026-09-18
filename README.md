@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
