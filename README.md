@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
