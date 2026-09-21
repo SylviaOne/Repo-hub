@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Geology rocks, but Geography is where it's at!
