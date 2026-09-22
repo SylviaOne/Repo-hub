@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## Why was it called the dark ages? Because of all the knights. 
