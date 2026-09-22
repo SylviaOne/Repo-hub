@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## I got fired from a florist, apparently I took too many leaves.
