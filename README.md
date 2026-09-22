@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
