@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
