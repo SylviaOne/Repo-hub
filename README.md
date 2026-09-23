@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
