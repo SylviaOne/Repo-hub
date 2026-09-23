@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
