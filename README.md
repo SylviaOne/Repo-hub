@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What does a female snake use for support? A co-Bra!
