@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
