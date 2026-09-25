@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
