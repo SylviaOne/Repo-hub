@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
