@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
