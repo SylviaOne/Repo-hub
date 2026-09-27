@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## How do you teach a kid to climb stairs? There is a step by step guide.
