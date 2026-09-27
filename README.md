@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I’ll tell you something about German sausages, they’re the wurst
