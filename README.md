@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## Why did the clown have neck pain? - Because he slept funny
