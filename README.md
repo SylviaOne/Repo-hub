@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## I'm glad I know sign language, it's pretty handy.
