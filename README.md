@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Why are ghosts bad liars? Because you can see right through them!
