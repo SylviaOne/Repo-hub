@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
