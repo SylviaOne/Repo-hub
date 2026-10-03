@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
