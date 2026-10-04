@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
