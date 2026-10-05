@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
