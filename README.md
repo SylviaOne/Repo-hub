@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
