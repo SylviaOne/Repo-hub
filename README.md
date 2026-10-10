@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
