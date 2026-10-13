@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## How do you teach a kid to climb stairs? There is a step by step guide.
