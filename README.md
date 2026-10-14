@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
