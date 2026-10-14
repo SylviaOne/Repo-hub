@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## What did one nut say as he chased another nut?  I'm a cashew!
