@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
