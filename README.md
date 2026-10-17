@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why did the kid cross the playground? To get to the other slide.
