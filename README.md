@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What did the calculator say to the student? You can count on me.
