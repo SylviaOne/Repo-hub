@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
