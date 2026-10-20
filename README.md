@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What does an angry pepper do? It gets jalapeño face.
