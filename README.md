@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
