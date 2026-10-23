@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## If two vegans are having an argument, is it still considered beef?
