@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Why did the barber win the race? He took a short cut.
