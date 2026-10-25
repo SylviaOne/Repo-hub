@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What do you call a cow with two legs? Lean beef.
