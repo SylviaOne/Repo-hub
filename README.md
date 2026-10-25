@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## An apple a day keeps the bullies away. If you throw it hard enough.
