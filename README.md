@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
