@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
