@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What do you call a droid that takes the long way around? R2 detour.
