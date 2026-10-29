@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Where did Captain Hook get his hook? From a second hand store.
