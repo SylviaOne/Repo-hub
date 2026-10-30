@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
