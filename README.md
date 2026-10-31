@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## You know that cemetery up the road? People are dying to get in there.
