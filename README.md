@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
