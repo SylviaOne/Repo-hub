@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
