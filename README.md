@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
