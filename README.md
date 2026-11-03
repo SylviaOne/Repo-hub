@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
