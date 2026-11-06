@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
