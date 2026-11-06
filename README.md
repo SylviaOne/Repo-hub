@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Why are skeletons so calm? Because nothing gets under their skin.
