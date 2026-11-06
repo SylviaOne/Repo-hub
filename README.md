@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
