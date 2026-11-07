@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Where do sheep go to get their hair cut? The baa-baa shop.
