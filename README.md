@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
