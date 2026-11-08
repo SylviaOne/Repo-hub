@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## My wife said I was immature. So I told her to get out of my fort.
