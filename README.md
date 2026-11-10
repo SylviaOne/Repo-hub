@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why did the melons plan a big wedding? Because they cantaloupe!
