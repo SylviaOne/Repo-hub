@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What has three letters and starts with gas? A Car.
