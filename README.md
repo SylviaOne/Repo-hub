@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
