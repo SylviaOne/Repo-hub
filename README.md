@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
