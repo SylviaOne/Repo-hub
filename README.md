@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## I ordered a chicken and an egg from Amazon. I'll let you know.
