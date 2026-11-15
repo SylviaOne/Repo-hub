@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
