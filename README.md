@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
