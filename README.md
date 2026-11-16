@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
