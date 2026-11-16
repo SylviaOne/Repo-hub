@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
