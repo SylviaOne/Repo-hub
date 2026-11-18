@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
