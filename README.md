@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What's the best thing about elevator jokes? They work on so many levels.
