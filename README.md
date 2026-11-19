@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
