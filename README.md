@@ -1,1 +1,2 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
