@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
