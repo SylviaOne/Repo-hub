@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
