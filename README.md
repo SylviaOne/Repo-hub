@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why do pirates not know the alphabet? They always get stuck at "C".
