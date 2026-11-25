@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
