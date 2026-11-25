@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
