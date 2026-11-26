@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
