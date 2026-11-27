@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why are skeletons so calm? Because nothing gets under their skin.
